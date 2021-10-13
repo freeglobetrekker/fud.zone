@@ -4,7 +4,7 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
-+ 10/13/2021 Well, well, well, what do we have here. An actual FUD FARM <p>https://twitter.com/FudFarm</p>
++ 10/13/2021 Well, well, well, what do we have here. An actual [FUD FARM](https://twitter.com/FudFarm)
 
 ### IMPORTANT LINKS
 
