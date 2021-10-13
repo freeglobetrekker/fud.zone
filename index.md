@@ -1,12 +1,12 @@
-## Welcome to GitHub Pages
+## Welcome to FUD.ZONE
 
-You can use the [editor on GitHub](https://github.com/freeglobetrekker/fud.zone/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+You are probably here seeking knowledge of FUD. Fortunately for you, we only speak of FUD & derivatives of FUD. 
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Whenever you commit to coming to visit the FUD.ZONE, be forewarned. You may not like what you see. 
 
 ### Markdown
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+If you're here, you're going to make it. We almost guarantee it, but cannot due to legal issues. Not financial advice. 
 
 ```markdown
 Syntax highlighted code block
@@ -26,12 +26,10 @@ Syntax highlighted code block
 [Link](url) and ![Image](src)
 ```
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+### IMPORTANT LINKS
 
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/freeglobetrekker/fud.zone/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+Something was here...but is not. Stay tuned. 
 
 ### Support or Contact
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+You can contact the creator of the FUD.ZONE here > [www.twitter.com/defime3591] 
