@@ -11,7 +11,7 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### IMPORTANT LINKS
 
-Something was here...but is not. Stay tuned. 
+[Splinterland](https://splinterlands.com?ref=freeglobetrekker) = Play to Earn Card Game 
 
 ### Support or Contact
 
