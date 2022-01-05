@@ -7,7 +7,9 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
-+ 01/05/2022 "Where can I see the NFT I just claimed?" Answer: Check OS 
++ 01/04/2022 "Wait, does my claim cost gas?" Answer: Please leave 
+
++ 01/03/2022 "Where can I see the NFT I just claimed?" Answer: Check OS 
 
 + 10/13/2021 Well, well, well, what do we have here. An actual [FUD FARM](https://twitter.com/FudFarm)
 
