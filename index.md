@@ -15,7 +15,7 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### IMPORTANT LINKS
 
-[Splinterland](https://splinterlands.com?ref=freeglobetrekker) = Play to Earn Card Game 
+[Splinterland](https://splinterlands.com?ref=freeglobetrekker) = Play to Earn 
 
 [The ENS of 2022](https://metafabric.io/) = $FABRIC
 
