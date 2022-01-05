@@ -7,7 +7,7 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
-+ 01/04/2022 "Wait, does my claim cost gas?" Answer: Please leave 
++ 01/04/2022 "Wait, does my FREE claim cost gas?" Answer: Yes 
 
 + 01/03/2022 "Where can I see the NFT I just claimed?" Answer: Check OS 
 
