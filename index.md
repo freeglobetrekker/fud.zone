@@ -7,7 +7,7 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
-+ 01/05/2022 "Hey hey! Haven't been in this discord in a few months. Is this project dead? By the way I hold 20 of this project's NFTs" Answer: No
++ 01/05/2022 "Haven't been in this discord in a few months. Is this project dead?" Answer: No
 
 + 01/04/2022 "Wait, does my FREE claim cost gas?" Answer: Yes 
 
