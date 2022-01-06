@@ -25,6 +25,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 [Capital 4 Crypto Projects](https://beanie.vc) = Beanbag$
 
+[Turn Your #Degen Gains into Bigger Gains] 👉 Chimp.Bet 🐒
+
 
 ### Support or Contact
 
