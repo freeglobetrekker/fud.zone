@@ -23,7 +23,7 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 [The ENS of 2022](https://metafabric.io/) = $FABRIC
 
-[Capital for Your Crypto Project](https://beanie.vc) = Beanbag$
+[Capital 4 Crypto Projects](https://beanie.vc) = Beanbag$
 
 
 ### Support or Contact
