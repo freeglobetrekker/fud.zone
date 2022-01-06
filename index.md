@@ -7,7 +7,7 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
-+1 01/06/2022 "Hey now that I've been fudding this project for 2 months until they finally delivered their promises today, WHEN IS THE NEXT PHASE? WHAT'S THE TIMELINE?" Answer: You just cannot be satisfied can you? First project? 
++ 01/06/2022 "Hey now that I've been fudding this project for 2 months until they finally delivered their promises today, WHEN IS THE NEXT PHASE? WHAT'S THE TIMELINE?" Answer: You just cannot be satisfied can you? First project? 
 
 + 01/05/2022 "Haven't been in this discord in a few months. Is this project dead?" Answer: No
 
