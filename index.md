@@ -7,6 +7,10 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 ### FUD.Zone Quote o' January
 "imagine going out of your way to come into this server just to say 'this was a rug'....but still hold all your monkeys/baboons etc etc" -sam_nano 
 
+### NEWS 
+
+[World's Largest Airdrop is About to Happen at PulseX.com](https://www.pulsex.com) 
+
 
 ### Today's FUD 
 
