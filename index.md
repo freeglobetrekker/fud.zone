@@ -10,6 +10,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
++ 01/08/2022 "I've dumped $150 into this project and need to see a profit. Wen moon? Wen AMA?" Answer: ...
+
 + 01/07/2022 "It's been 24 hours since we've heard from the devs. Is anyone listening to our concerns?" Answer: Yes
 
 + 01/06/2022 "Hey guys, been out of this discord for a few months. I see you've delivered the airdrop, but what's next"? Answer: Read FAQ 
