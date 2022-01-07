@@ -4,6 +4,9 @@
 
 You are probably here seeking knowledge of FUD. Fortunately for you, we only speak of FUD & derivatives of FUD. Whenever you commit to visiting the FUD.ZONE, be forewarned. You may not like what you see. If you're here, you're going to make it. We almost guarantee it, but cannot due to legal issues. Not financial advice. 
 
+### January's Quote
+"imagine going out of your way to come into this server just to say "this was a rug"....but still hold all your monkeys/baboons etc etc" 
+
 
 ### Today's FUD 
 
