@@ -43,6 +43,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Support or Contact
 
-DM the person who sent this to you and ask them. 
+DM the person who sent this to you and ask them or add the creator on [Twitter](https://www.twitter.com/freeglobetrekk)
+
+++
 
 [The FUD.zone is Sponsored in Part by Chimp.Bet - The #1 Crypto Casino By Degens for Degens](https://www.chimp.bet)
