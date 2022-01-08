@@ -32,6 +32,7 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 [Biggest Airdrop of All Time](https://www.pulsex.com) = PulseX.com
 
+[The FUD.zone is Sponsored in Part by Chimp.Bet - The #1 Crypto Casino By Degens for Degens](https://www.chimp.bet)
 [Splinterland](https://splinterlands.com?ref=freeglobetrekker) = Play to Earn 
 
 [The ENS of 2022](https://metafabric.io/) = $FABRIC
