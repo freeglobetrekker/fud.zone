@@ -14,6 +14,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
++ 01/09/2022 "HEX is a scam." Answer: Shows chart
+
 + 01/08/2022 "I've dumped $150 into this project and need to see a profit. Wen moon? Wen AMA?" Answer: ...
 
 + 01/07/2022 "It's been 24 hours since we've heard from the devs. Is anyone listening to our concerns?" Answer: Yes
