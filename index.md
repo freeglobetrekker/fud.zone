@@ -14,7 +14,7 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
-+ 01/10/2022 "You've just been rugged!" [Says the guy still holding from day one.] Answer: Nope
++ 01/10/2022 "You've just been rugged!" [Says the manchild who drops into discord after selling 6 months ago] Answer: Nope
 
 + 01/09/2022 "HEX is a scam." Answer: Shows chart
 
