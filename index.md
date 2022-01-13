@@ -14,6 +14,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
++ 01/13/2022 "$SOS + $GAS = $ASS" IYKYK 
+
 + 01/12/2022 "A week isn't enough time to claim!" Answer: You had a week (facepalm) 
 
 + 01/11/2022 "Hey is this project dead?" Says the same guy who asked 6 months ago. Answer: Nope
