@@ -14,6 +14,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
++ 01/16/2022 "Wen free airdrop and cash?" Answer: first project? 
+
 + 01/13/2022 "$SOS + $GAS = $ASS" IYKYK 
 
 + 01/12/2022 "A week isn't enough time to claim!" Answer: You had a week (facepalm) 
