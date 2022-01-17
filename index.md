@@ -45,6 +45,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 ### MARKETPLACE
 WolfDotGam.ETH for sale! DM  [FreeGlobeTrekk](https://www.twitter.com/freeglobetrekk) with Offer
 
+MonkeyBet365.com [Chimp.Bet](https://www.chimp.bet) casino skin for sale! DM  [FreeGlobeTrekk](https://www.twitter.com/freeglobetrekk) with Offer
+
 ### IMPORTANT LINKS
 
 [Biggest Airdrop of All Time](https://www.pulsex.com) = PulseX.com
