@@ -47,8 +47,6 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 ### MARKETPLACE
 WolfDotGam.ETH for sale! DM  [FreeGlobeTrekk](https://www.twitter.com/freeglobetrekk) with Offer
 
-MonkeyBet365.com [Chimp.Bet](https://www.chimp.bet) casino skin for sale! DM  [FreeGlobeTrekk](https://www.twitter.com/freeglobetrekk) with Offer
-
 ### IMPORTANT LINKS
 
 [Biggest Airdrop of All Time](https://www.pulsex.com) = PulseX.com
@@ -57,15 +55,7 @@ MonkeyBet365.com [Chimp.Bet](https://www.chimp.bet) casino skin for sale! DM  [F
 
 [The ENS of 2022](https://metafabric.io/) = $FABRIC
 
-[Capital 4 Crypto Projects](https://beanie.vc) = Beanbag$
-
-[Turn Your #Degen Gains into Bigger Gains](http://chimp.bet) 👉 [Chimp.Bet](https://Chimp.Bet) 🐒
-
 
 ### Support or Contact
 
 DM the person who sent this to you and ask them or add the creator on [Twitter](https://www.twitter.com/freeglobetrekk)
-
-### A Special Thank You to Our Degen Sponsor
-
-[The FUD.zone is Sponsored in Part by Chimp.Bet - The #1 Crypto Casino By Degens for Degens](https://www.chimp.bet)
