@@ -55,6 +55,8 @@ WolfDotGam.ETH for sale! DM  [FreeGlobeTrekk](https://www.twitter.com/freeglobet
 
 [The ENS of 2022](https://metafabric.io/) = $FABRIC
 
+The Instagram of NFTs = [Nafter.io](https://www.nafter.io)
+
 
 ### Support or Contact
 
