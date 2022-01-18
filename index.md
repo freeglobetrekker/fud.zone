@@ -49,15 +49,17 @@ WolfDotGam.ETH for sale! DM  [FreeGlobeTrekk](https://www.twitter.com/freeglobet
 
 ### IMPORTANT LINKS
 
-[Biggest Airdrop of All Time](https://www.pulsex.com) = PulseX.com
+Best Game Theory NFT Project = [Wolf.Game](https://www.wolf.game)
 
-[Splinterland](https://splinterlands.com?ref=freeglobetrekker) = Play to Earn 
+Biggest Airdrop of All Time = [PulseX.com](https://www.pulsex.com) 
 
-[The ENS of 2022](https://metafabric.io/) = $FABRIC
+Well Established #P2E Game = [Splinterland](https://splinterlands.com?ref=freeglobetrekker) 
+
+The ENS of 2022 = [$FABRIC](https://metafabric.io/) 
 
 The Instagram of NFTs = [Nafter.io](https://www.nafter.io)
 
 
-### Support or Contact
+### COMMS
 
-DM the person who sent this to you and ask them or add the creator on [Twitter](https://www.twitter.com/freeglobetrekk)
+Add the creator on [Twitter](https://www.twitter.com/freeglobetrekk)
