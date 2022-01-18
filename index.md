@@ -14,7 +14,9 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
-+ 01/17/2022 Noob comes into the discord like "question. im trying to buy one of these monkeys and it wants to charge be 160$ in transaction fees. is that 100% necessary  to buy this?" Answer: (facepalm)
++ 01/17/2022 Is it worth $145 in gas for [4.5 veX](https://www.theopendao.com/)?
+
++ 01/17/2022 Noob comes into the discord like, "question. im trying to buy one of these monkeys and it wants to charge be 160$ in transaction fees. is that 100% necessary  to buy this?" Answer: (facepalm)
 
 + 01/16/2022 "Wen free airdrop and cash?" Answer: first project? 
 
