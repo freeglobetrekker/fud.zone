@@ -14,6 +14,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
++ 01/24/2022 Lie flat for as long as you can = [HODL](https://www.pulsex.com) 
+
 + 01/18/2022 Is it worth $145 in gas for [4.5 veX](https://www.theopendao.com/)?
 
 + 01/17/2022 Noob comes into the discord like, "question. im trying to buy one of these monkeys and it wants to charge be 160$ in transaction fees. is that 100% necessary  to buy this?" Answer: (facepalm)
