@@ -11,6 +11,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 [World's Largest Airdrop is About to Happen at PulseX.com](https://www.pulsex.com) 
 
+[A Brief Glimpse into the Sacrificing of $BTC $ETH & More](https://www.pulsex.com) 
+
 
 ### Today's FUD 
 
