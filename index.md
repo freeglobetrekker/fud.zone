@@ -55,6 +55,8 @@ WolfDotGam.ETH for sale! DM  [FreeGlobeTrekk](https://www.twitter.com/freeglobet
 
 ### IMPORTANT LINKS
 
+Earn Fiat without Selling Crypto with [Liquid Loans](https://t.co/fKE3OfAzIb) + 5% Bonus for Signing Up
+
 Best Game Theory NFT Project = [Wolf.Game](https://www.wolf.game)
 
 Biggest Airdrop of All Time = [PulseX.com](https://www.pulsex.com) 
