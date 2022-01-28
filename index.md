@@ -16,7 +16,9 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
-+ 01/24/2022 If you bought [$BTC](https://www.bitcoin.org) a year ago, you're down. Cash would have been better (head explodes). 
++ 01/28/2022 "Can DEVS please do something?!?!" Answer: Nope
+
++ 01/26/2022 If you bought [$BTC](https://www.bitcoin.org) a year ago, you're down. Cash would have been better (head explodes). 
 
 + 01/24/2022 Lie flat for as long as you can = [HODL](https://www.pulsex.com) 
 
