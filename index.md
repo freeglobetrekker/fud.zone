@@ -57,6 +57,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 ### MARKETPLACE
 WolfDotGam.ETH for sale! DM  [FreeGlobeTrekk](https://www.twitter.com/freeglobetrekk) with Offer
 
+Like HEX? Pulsechain? Show Off in Style with [HEXMerch.shop](https://www.hexmerch.shop) Premium Accessories
+
 ### IMPORTANT LINKS
 
 Earn Fiat without Selling Crypto with [Liquid Loans](https://t.co/fKE3OfAzIb) + 5% Bonus for Signing Up
