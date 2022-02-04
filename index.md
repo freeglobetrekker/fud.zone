@@ -16,6 +16,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
++ 02/04/2022 "Pulsechain is just a copy of Etherium." Answer: Yes
+
 + 01/28/2022 "Can DEVS please do something?!?!" Answer: Nope
 
 + 01/26/2022 If you bought [$BTC](https://www.bitcoin.org) a year ago, you're down. Cash would have been better (head explodes). 
