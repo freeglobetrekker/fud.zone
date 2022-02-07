@@ -16,6 +16,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
++ 02/07/2022 "Are NFTs the future of gaming?" Answer: Yes
+
 + 02/04/2022 "Pulsechain is just a copy of Etherium." Answer: Yes
 
 + 01/28/2022 "Can DEVS please do something?!?!" Answer: Nope
