@@ -16,6 +16,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
++ 02/11/2022 "Is this project dead?" Answer: No, but you're going to be if you keep asking that. 
+
 + 02/07/2022 "Are NFTs the future of gaming?" Answer: Yes
 
 + 02/04/2022 "Pulsechain is just a copy of Etherium." Answer: Yes
