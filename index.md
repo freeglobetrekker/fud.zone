@@ -11,6 +11,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 [The Sandbox Partners with DanceFight](https://nftevening.com/the-sandbox-partners-with-dancefight-to-bring-epic-dance-battles-to-the-metaverse/)
 
+[NFT Cloud Service Built By Salesforce](https://nftevening.com/nft-cloud-service-built-by-salesforce-get-ready-for-the-future/)
+
 [World's Largest Airdrop is About to Happen at PulseX.com](https://www.pulsex.com) 
 
 [A Brief Glimpse into the Sacrificing of $BTC $ETH & More](https://www.pulsex.com) 
