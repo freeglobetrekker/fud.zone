@@ -17,8 +17,12 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 [A Brief Glimpse into the Sacrificing of $BTC $ETH & More](https://www.pulsex.com) 
 
+[A Brief Introduction to Ethereum Swarm](https://hackernoon.com/a-brief-introduction-to-ethereum-swarm)
+
 
 ### Today's FUD 
+
++ 02/15/2022 "What's the biggest hangup you have with NFT projects?" Me: NFTs
 
 + 02/11/2022 "Is this project dead?" Answer: No, but you're going to be if you keep asking that. 
 
