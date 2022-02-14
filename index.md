@@ -71,6 +71,10 @@ WolfDotGam.ETH for sale! DM  [FreeGlobeTrekk](https://www.twitter.com/freeglobet
 
 Like HEX? Pulsechain? Show Off in Style with [HEXMerch.shop](https://www.hexmerch.shop) Premium Accessories
 
+### SCAMMERS
+
+[The Most Elaborate Scam Hitting the NFT & Crypto Space in 2022 - Full Thread](https://twitter.com/thomasg_eth/status/1492663192404779013)
+
 ### IMPORTANT LINKS
 
 Earn Fiat without Selling Crypto with [Liquid Loans](https://t.co/fKE3OfAzIb) + 5% Bonus for Signing Up
