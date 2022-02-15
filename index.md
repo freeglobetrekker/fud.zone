@@ -19,8 +19,12 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 [A Brief Introduction to Ethereum Swarm](https://hackernoon.com/a-brief-introduction-to-ethereum-swarm)
 
+[Learn K-Means Clustering by Quantizing Color Images in Python](https://hackernoon.com/learn-k-means-clustering-by-quantizing-color-images-in-python)
+
 
 ### Today's FUD 
+
++ 02/16/2022 "Is Crypto down?" Answer: Yes, but it's not out. 
 
 + 02/15/2022 "What's the biggest hangup you have with NFT projects?" Me: NFTs
 
