@@ -93,6 +93,8 @@ The ENS of 2022 = [$FABRIC](https://metafabric.io/)
 
 The Instagram of NFTs = [Nafter.io](https://www.nafter.io)
 
+Build Your Own Affiliate Program for Free = [Goaffpro](https://goaffpro.com/#freeglobetrekke)
+
 
 ### COMMS
 
