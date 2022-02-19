@@ -24,6 +24,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
++ 02/19/2022 "So are we going to be winning stuff or is it just in game money?" Answer: In game money is also a prize, idiot
+
 + 02/16/2022 "Is Crypto down?" Answer: Yes, but it's not out. 
 
 + 02/15/2022 "What's the biggest hangup you have with NFT projects?" Me: NFTs
