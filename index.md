@@ -24,6 +24,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
++ 02/24/2022 "BREAKING NEWS: Ukraine Cuts Ties With Russia. Can you explain that in football terms?" Answer: Tottenham cuts ties with trophies
+
 + 02/19/2022 "So are we going to be winning stuff or is it just in game money?" Answer: In game money is also a prize, idiot
 
 + 02/16/2022 "Is Crypto down?" Answer: Yes, but it's not out. 
