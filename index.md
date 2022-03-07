@@ -4,7 +4,7 @@
 
 You are probably here seeking knowledge of FUD. Fortunately for you, we only speak of FUD & derivatives of FUD. Whenever you commit to visiting the FUD.ZONE, be forewarned. You may not like what you see. If you're here, you're going to make it. We almost guarantee it, but cannot due to legal issues. Not financial advice. 
 
-### FUD.Zone Quote o' February
+### FUD.Zone Quote o' March
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 ### NEWS 
@@ -23,6 +23,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 
 ### Today's FUD 
+
++ 03/08/2022 And the wise @beaniemaxi said "Wagmi and fake positivity is toxic" Answer: Lol thanks beanie, you’re the moral compass we were missing in this space @pl33b
 
 + 03/01/2022 "Please DO NOT announce to the server when you are going to go masturbate." -ratwell
 
@@ -91,7 +93,7 @@ Like HEX? Pulsechain? Show Off in Style with [HEXMerch.shop](https://www.hexmerc
 
 ### IMPORTANT LINKS
 
-Earn Fiat without Selling Crypto with [Liquid Loans](https://t.co/fKE3OfAzIb) + 5% Bonus for Signing Up
+Work with Anon Teams? You Need to get [MetaFabric.io](https://www.emperor.met.id)
 
 Best Game Theory NFT Project = [Wolf.Game](https://www.wolf.game)
 
