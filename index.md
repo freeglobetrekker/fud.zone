@@ -24,6 +24,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
++ 03/09/2022 "NFTs are dead" @beaniemaxi Answer: Just yours. We knowo you scammed the AOL wheat futures chatrooms too bro. Do what you need to do. 
+
 + 03/08/2022 And the wise @beaniemaxi said "Wagmi and fake positivity is toxic" Answer: Lol thanks beanie, you’re the moral compass we were missing in this space @pl33b
 
 + 03/01/2022 "Please DO NOT announce to the server when you are going to go masturbate." -ratwell
