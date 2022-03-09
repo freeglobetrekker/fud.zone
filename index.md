@@ -1,4 +1,4 @@
-## Welcome to the FUD.ZONE
+## Welcome to the FUD.ZONE, Sponsored by [HORUS X - Simply the Best Gaming Glasses](https://us.horus-x.com/?ref=8DXfZjir5yX)
 
 ### "The Best Answer to a Fudder, Is None At All" -A Person on Tik Tok
 
@@ -24,7 +24,7 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
-+ 03/09/2022 "NFTs are dead" @beaniemaxi Answer: Just yours. We knowo you scammed the AOL wheat futures chatrooms too bro. Do what you need to do. 
++ 03/09/2022 "NFTs are dead" @beaniemaxi Answer: Just yours. We know you scammed the AOL wheat futures chatrooms too bro. Do what you need to do. 
 
 + 03/08/2022 And the wise @beaniemaxi said "Wagmi and fake positivity is toxic" Answer: Lol thanks beanie, you’re the moral compass we were missing in this space @pl33b
 
