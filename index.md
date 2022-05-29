@@ -4,10 +4,12 @@
 
 You are probably here seeking knowledge of FUD. Fortunately for you, we only speak of FUD & derivatives of FUD. Whenever you commit to visiting the FUD.ZONE, be forewarned. You may not like what you see. If you're here, you're going to make it. We almost guarantee it, but cannot due to legal issues. Not financial advice. 
 
-### FUD.Zone Quote o' March
+### FUD.Zone Quote o' June 2022
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 ### NEWS 
+
+[Luna Crashes, Again](https://www.cnet.com/personal-finance/crypto/terra-2-0-launched-today-following-luna-meltdown-this-weeks-top-bitcoin-and-crypto-news/)
 
 [The Sandbox Partners with DanceFight](https://nftevening.com/the-sandbox-partners-with-dancefight-to-bring-epic-dance-battles-to-the-metaverse/)
 
@@ -23,6 +25,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 
 ### Today's FUD 
+
++ 05/29/2022 Luna 2.0 has launched and subsequently dropped 80% in the first 24 hours. My question is, wen 3.0? 
 
 + 03/09/2022 "NFTs are dead" @beaniemaxi Answer: Just yours. We know you scammed the AOL wheat futures chatrooms too bro. Do what you need to do. 
 
