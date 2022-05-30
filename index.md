@@ -26,6 +26,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
++ 05/30/2022 Pulsechain hasn't launched. Is Richard Heart for reals? 
+
 + 05/29/2022 Luna 2.0 has launched and subsequently dropped 80% in the first 24 hours. My question is, wen 3.0? 
 
 + 03/09/2022 "NFTs are dead" @beaniemaxi Answer: Just yours. We know you scammed the AOL wheat futures chatrooms too bro. Do what you need to do. 
