@@ -9,6 +9,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### NEWS 
 
+[Crypto Market Making: A Complete Introduction](https://hackernoon.com/crypto-market-making-a-complete-introduction)
+
 [Luna Crashes, Again](https://www.cnet.com/personal-finance/crypto/terra-2-0-launched-today-following-luna-meltdown-this-weeks-top-bitcoin-and-crypto-news/)
 
 [The Sandbox Partners with DanceFight](https://nftevening.com/the-sandbox-partners-with-dancefight-to-bring-epic-dance-battles-to-the-metaverse/)
