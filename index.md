@@ -26,6 +26,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
++ 06/01/2022 Pulsechain will be Richard Heart's biggest failure to date. 
+
 + 05/31/2022 Pulsechain has been delayed again. Can the devs do something?!!?!?
 
 + 05/30/2022 Pulsechain hasn't launched. Is Richard Heart for reals? 
