@@ -28,6 +28,10 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
++ 06/03/2022 "Cool story. This has Literally NOTHING to do with crypto.  What is this the travel channel now?" -PlsN2moreMOnthsLoLz @doncrypto00 in reply to the The Highest of Stakes Movie teaser
+
++ 06/02/2022 "Warning for pulsicans (CRITICAL): I’ve gone through the PulseChain codebase and discovered that they’ve accidentally forked the code for the Merge with them from Ethereum (PoW => PoS). But since PulseChain is already PoS it will un-Merge instead and turn PulseChain back into PoW!" -Eric & Erica Wall
+
 + 06/01/2022 Pulsechain will be Richard Heart's biggest failure to date. 
 
 + 05/31/2022 Pulsechain has been delayed again. Can the devs do something?!!?!?
@@ -100,6 +104,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 WolfDotGam.ETH for sale! DM  [FreeGlobeTrekk](https://www.twitter.com/freeglobetrekk) with Offer
 
 Like HEX? Pulsechain? Show Off in Style with [HEXMerch.shop](https://www.hexmerch.shop) Premium Accessories
+
+Is Your Cannabis Safe [CLICK Here](https://www.MasonBrite.com/KIT)
 
 ### SCAMMERS
 
