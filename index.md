@@ -28,6 +28,12 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### Today's FUD 
 
++ 06/06/2022 "I thought that Richard Heart would launch Pulsechain on 6.3. Now it's 666 (6/6/2022) and still nothing"
+
++ 06/05/2022 "A grown man wearing this and wanting to be taken seriously is beyond funny!!" -in response to Richard Heart showing off an ugly green $4400 USD sweatsuit
+
++ 06/04/2022 "Why don't you ask the kids at Tiananmen square? Was passion the reason why they were there?" -System of a Down (FUD)
+
 + 06/03/2022 "Cool story. This has Literally NOTHING to do with crypto.  What is this the travel channel now?" -PlsN2moreMOnthsLoLz @doncrypto00 in reply to the The Highest of Stakes Movie teaser
 
 + 06/02/2022 "Warning for pulsicans (CRITICAL): I’ve gone through the PulseChain codebase and discovered that they’ve accidentally forked the code for the Merge with them from Ethereum (PoW => PoS). But since PulseChain is already PoS it will un-Merge instead and turn PulseChain back into PoW!" -Eric & Erica Wall
