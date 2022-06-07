@@ -9,6 +9,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### NEWS 
 
+[Was the Luna Crash Planned or an Imperfection in the System?](https://hackernoon.com/luna-debacle-a-planned-attack-or-an-imperfection-in-the-system)
+
 [Crypto Market Making: A Complete Introduction](https://hackernoon.com/crypto-market-making-a-complete-introduction)
 
 [Luna Crashes, Again](https://www.cnet.com/personal-finance/crypto/terra-2-0-launched-today-following-luna-meltdown-this-weeks-top-bitcoin-and-crypto-news/)
@@ -27,6 +29,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 
 ### Today's FUD 
+
++ 06/07/2022 "Less of Richard Heart's ass twerking and more promises kept" 
 
 + 06/06/2022 "I thought that Richard Heart would launch Pulsechain on 6.3. Now it's 666 (6/6/2022) and still nothing"
 
