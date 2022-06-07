@@ -9,6 +9,8 @@ You are probably here seeking knowledge of FUD. Fortunately for you, we only spe
 
 ### NEWS 
 
+[US Investigates Binance Over BNB ICO](https://decrypt.co/102150/sec-binance-bnb-ico-report)
+
 [Was the Luna Crash Planned or an Imperfection in the System?](https://hackernoon.com/luna-debacle-a-planned-attack-or-an-imperfection-in-the-system)
 
 [Crypto Market Making: A Complete Introduction](https://hackernoon.com/crypto-market-making-a-complete-introduction)
