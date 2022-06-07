@@ -2,8 +2,6 @@
 
 ### "The Best Answer to a Fudder, Is None At All" -A Person on Tik Tok
 
-You are probably here seeking knowledge of FUD. Fortunately for you, we only speak of FUD & derivatives of FUD. Whenever you commit to visiting the FUD.ZONE, be forewarned. You may not like what you see. If you're here, you're going to make it. We almost guarantee it, but cannot due to legal issues. Not financial advice. 
-
 ### FUD.Zone Quote o' June 2022
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
@@ -143,3 +141,7 @@ Build Your Own Affiliate Program for Free = [Goaffpro](https://goaffpro.com/#fre
 ### COMMS
 
 Add the creator on [Twitter](https://www.twitter.com/freeglobetrekk)
+
+### ABOUT FUD.ZONE
+
+You are probably here seeking knowledge of FUD. Fortunately for you, we only speak of FUD & derivatives of FUD. Whenever you commit to visiting the FUD.ZONE, be forewarned. You may not like what you see. If you're here, you're going to make it. We almost guarantee it, but cannot due to legal issues. Not financial advice. 
