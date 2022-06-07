@@ -7,6 +7,8 @@
 
 ### NEWS 
 
+[Is Cloud Gaming Doomed Because of Physics?](https://hackernoon.com/is-cloud-gaming-doomed-because-of-physics)
+
 [US Investigates Binance Over BNB ICO](https://decrypt.co/102150/sec-binance-bnb-ico-report)
 
 [Was the Luna Crash Planned or an Imperfection in the System?](https://hackernoon.com/luna-debacle-a-planned-attack-or-an-imperfection-in-the-system)
