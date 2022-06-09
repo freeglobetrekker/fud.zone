@@ -32,6 +32,10 @@
 
 ### Today's FUD 
 
++ 06/09/2022 "Anybody still holding #lunc has balls of steel .. you are risking it all right now .. all of nothing." @lunc_community twitter
+
++ 06/08/2022 "Why is LUNAC crashing?" It's lunacy
+
 + 06/07/2022 "Less of Richard Heart's ass twerking and more promises kept" 
 
 + 06/06/2022 "I thought that Richard Heart would launch Pulsechain on 6.3. Now it's 666 (6/6/2022) and still nothing"
