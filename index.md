@@ -32,6 +32,8 @@
 
 ### Today's FUD 
 
++ 06/10/2022 "It's Friday and still no Pulsechain" 
+
 + 06/09/2022 "Anybody still holding #lunc has balls of steel .. you are risking it all right now .. all of nothing." @lunc_community twitter
 
 + 06/08/2022 "Why is LUNAC crashing?" It's lunacy
