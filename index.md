@@ -7,6 +7,8 @@
 
 ### NEWS 
 
+[You Are Doing Manifestation Wrong](https://hackernoon.com/you-are-doing-manifestation-wrong)
+
 [Is Cloud Gaming Doomed Because of Physics?](https://hackernoon.com/is-cloud-gaming-doomed-because-of-physics)
 
 [US Investigates Binance Over BNB ICO](https://decrypt.co/102150/sec-binance-bnb-ico-report)
@@ -31,6 +33,8 @@
 
 
 ### Today's FUD 
+
++ 06/11/2022 No FUD today. Just touch grass. 
 
 + 06/10/2022 "It's Friday and still no Pulsechain" 
 
