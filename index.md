@@ -33,6 +33,13 @@
 
 
 ### Today's FUD 
+ 
++ 06/14/2022 Anyone who listened to the FUD and didn't sac just been robbed of an opportunity because of who they listen too. DYOR @Bitful_satire Twitter
+
++ 06/13/2022 difficult to overstate how harmful narrative FUD from Luna implosion and now Celsius has been, stacked with the current macroeconomic risk environment
+thanks again for creating unsustainable risky products, then marketing them as safe, so that we may all suffer collapse. @iamDCinvestor Twitter
+
++ 06/12/2022 Alex Mashinsky’s cope posting is reminiscent of Do Kwon’s final hours. Whenever we see people talk about “We need to unite. We will be stronger than ever. Don’t listen to the FUD. We will rebuild.” etc. we run. @AutismCapital Twitter
 
 + 06/11/2022 No FUD today. Just touch grass. 
 
