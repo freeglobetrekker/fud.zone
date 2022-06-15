@@ -36,6 +36,8 @@
 
 ### Today's FUD 
 
++ 06/16/2022 If your giving a penny to anything @owlman.eth or any of these idiots associated with this you might as well just start clicking on the links in your dm @Hank Moody Discord
+
 + 06/15/2022 I thought we were getting a node license. From what I read we just get $arcade tokens to play the games. MBD member @bloatfi$h Discord
  
 + 06/14/2022 Anyone who listened to the FUD and didn't sac just been robbed of an opportunity because of who they listen too. DYOR @Bitful_satire Twitter
