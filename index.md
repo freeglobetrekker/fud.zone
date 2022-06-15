@@ -7,6 +7,8 @@
 
 ### NEWS 
 
+[Monkey Bet Dao Rugpool Changes Hands to Look Labs](https://www.looklabs.com/2022-bear-market-update)
+
 [You Are Doing Manifestation Wrong](https://hackernoon.com/you-are-doing-manifestation-wrong)
 
 [Is Cloud Gaming Doomed Because of Physics?](https://hackernoon.com/is-cloud-gaming-doomed-because-of-physics)
@@ -33,6 +35,8 @@
 
 
 ### Today's FUD 
+
++ 06/15/2022 I thought we were getting a node license. From what I read we just get $arcade tokens to play the games. MBD member @bloatfi$h Discord
  
 + 06/14/2022 Anyone who listened to the FUD and didn't sac just been robbed of an opportunity because of who they listen too. DYOR @Bitful_satire Twitter
 
