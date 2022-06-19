@@ -36,7 +36,9 @@
 
 ### Today's FUD 
 
-+ 06/19/2022 Monica Mendez of Port Lavaca, Texas pleads guilty to 26 FELONY COUNTS of voter fraud. Media silent. (the fud here is that even though she was charged and found guilty the media won't cover it because..well, it's just fud for the narrative) [Reference Link](https://www.texasattorneygeneral.gov/news/releases/ag-paxton-successfully-prosecutes-woman-who-pleads-guilty-26-felony-counts-voter-fraud)
++ 06/19/2022 Fatherhood isn't all it's cracked up to be. -FUD Father
+
++ 06/18/2022 Monica Mendez of Port Lavaca, Texas pleads guilty to 26 FELONY COUNTS of voter fraud. Media silent. (the fud here is that even though she was charged and found guilty the media won't cover it because..well, it's just fud for the narrative) [Reference Link](https://www.texasattorneygeneral.gov/news/releases/ag-paxton-successfully-prosecutes-woman-who-pleads-guilty-26-felony-counts-voter-fraud)
 
 + 06/16/2022 If your giving a penny to anything @owlman.eth or any of these idiots associated with this you might as well just start clicking on the links in your dm @Hank Moody Discord
 
