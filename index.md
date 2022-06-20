@@ -7,6 +7,8 @@
 
 ### NEWS 
 
+[Have Humans Reached Peak Performance in Technology?](https://www.bbc.com/future/article/20220615-do-we-need-a-better-understanding-of-progress)
+
 [Monkey Bet Dao Rugpool Changes Hands to Look Labs](https://www.looklabs.com/2022-bear-market-update)
 
 [You Are Doing Manifestation Wrong](https://hackernoon.com/you-are-doing-manifestation-wrong)
@@ -35,6 +37,8 @@
 
 
 ### Today's FUD 
+
++ 06/20/2022 Internet: Richard heart = scammer Meanwhile @RichardHeartWin : •0 scams in or outside of the #crypto space •0 ads on #YouTube •0 paid shills •Free self help books/vids •Teaches secure self custody of coins •calls out #scams before they happen •0 paid groups #cryptocurrecy
 
 + 06/19/2022 Fatherhood isn't all it's cracked up to be. -FUD Father
 
