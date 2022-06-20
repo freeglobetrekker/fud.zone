@@ -2,8 +2,10 @@
 
 ### "The Best Answer to a Fudder, Is None At All" -A Person on Tik Tok
 
-### FUD.Zone Quote o' June 2022
+### FUD.Zone Quotes o' June 2022
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
+
+"#Hexicans have diamond hands that were forged in the fire of FUD"
 
 ### NEWS 
 
