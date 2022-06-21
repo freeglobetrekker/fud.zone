@@ -40,6 +40,8 @@
 
 ### Today's FUD 
 
++ 06/21/2022 Last week’s FUD price is this week’s FOMO, while this mornings FOMO is this afternoons FUD. Good ol’ #Bitcoin [Benjamin Cowen](https://twitter.com/intocryptoverse/status/1538949687646081025)
+
 + 06/20/2022 Internet: Richard heart = scammer Meanwhile @RichardHeartWin : •0 scams in or outside of the #crypto space •0 ads on #YouTube •0 paid shills •Free self help books/vids •Teaches secure self custody of coins •calls out #scams before they happen •0 paid groups #cryptocurrecy
 
 + 06/19/2022 Fatherhood isn't all it's cracked up to be. -FUD Father
