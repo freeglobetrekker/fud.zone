@@ -9,6 +9,10 @@
 
 ### NEWS 
 
+[DeFi+GameFi: How Decentralized Finance Helps Blockchain Games Become More Profitable for Users](https://hackernoon.com/defigamefi-how-decentralized-finance-helps-blockchain-games-become-more-profitable-for-users)
+
+[Is The World Ready for NFTFi - DeFi + NFT?](https://hackernoon.com/is-the-world-ready-for-nftfi-defi-nft-452333a8?ref=hackernoon.com)
+
 [Have Humans Reached Peak Performance in Technology?](https://www.bbc.com/future/article/20220615-do-we-need-a-better-understanding-of-progress)
 
 [Monkey Bet Dao Rugpool Changes Hands to Look Labs](https://www.looklabs.com/2022-bear-market-update)
