@@ -9,6 +9,8 @@
 
 ### NEWS 
 
+[8 Ways Crypto Wallets Can Be Hacked](https://hackernoon.com/8-ways-crypto-wallets-can-be-hacked)
+
 [DeFi+GameFi: How Decentralized Finance Helps Blockchain Games Become More Profitable for Users](https://hackernoon.com/defigamefi-how-decentralized-finance-helps-blockchain-games-become-more-profitable-for-users)
 
 [Is The World Ready for NFTFi - DeFi + NFT?](https://hackernoon.com/is-the-world-ready-for-nftfi-defi-nft-452333a8?ref=hackernoon.com)
@@ -43,6 +45,8 @@
 
 
 ### Today's FUD 
+
++ 06/22/2022 We made it past 6.6.2022 (666) and still no pulsechain. What gives? -guy who sacc'd $100 to Pulsechain on Twitter
 
 + 06/21/2022 Last week’s FUD price is this week’s FOMO, while this mornings FOMO is this afternoons FUD. Good ol’ #Bitcoin [Benjamin Cowen](https://twitter.com/intocryptoverse/status/1538949687646081025)
 
