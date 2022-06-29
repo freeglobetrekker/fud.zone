@@ -2,7 +2,7 @@
 
 ### "The Best Answer to a Fudder, Is None At All" -A Person on Tik Tok
 
-### FUD.Zone Quotes o' June 2022
+### FUD.Zone Quotes o' July 2022
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 "#Hexicans have diamond hands that were forged in the fire of FUD"
@@ -45,6 +45,8 @@
 
 
 ### Today's FUD 
+
++ 06/29/2022 Still no Pulsechain? Can the devs do something?!!?!?
 
 + 06/22/2022 We made it past 6.6.2022 (666) and still no pulsechain. What gives? -guy who sacc'd $100 to Pulsechain on Twitter
 
