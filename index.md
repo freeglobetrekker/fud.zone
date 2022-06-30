@@ -9,6 +9,8 @@
 
 ### NEWS 
 
+[Most Crypto Exchanges are 'Secretly' Insolvent](https://www.forbes.com/sites/stevenehrlich/2022/06/28/bankman-fried-some-crypto-exchanges-already-secretly-insolvent/?sh=6e0d372347f7)
+
 [8 Ways Crypto Wallets Can Be Hacked](https://hackernoon.com/8-ways-crypto-wallets-can-be-hacked)
 
 [DeFi+GameFi: How Decentralized Finance Helps Blockchain Games Become More Profitable for Users](https://hackernoon.com/defigamefi-how-decentralized-finance-helps-blockchain-games-become-more-profitable-for-users)
@@ -45,6 +47,8 @@
 
 
 ### Today's FUD 
+
++ 06/30/2022 Pulsechain will probably launch in Q4 [-dollarcostcrypto](https://twitter.com/liquidloansio/status/1542248086961020929?t=Nup9yJtRyrCgRxGeFoOF5g&s=08)
 
 + 06/29/2022 Still no Pulsechain? Can the devs do something?!!?!?
 
