@@ -48,6 +48,8 @@
 
 ### Today's FUD 
 
++ 07/04/2022 America was never great (FUD)
+
 + 07/02/2022 OFFICIAL: Richard Heart is timing the market. 
 
 + 06/30/2022 Pulsechain will probably launch in Q4 [-dollarcostcrypto](https://twitter.com/liquidloansio/status/1542248086961020929?t=Nup9yJtRyrCgRxGeFoOF5g&s=08)
