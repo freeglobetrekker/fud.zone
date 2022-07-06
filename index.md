@@ -9,6 +9,8 @@
 
 ### NEWS 
 
+[Crypto Winter 2018 vs. Crypto Summer 2022](https://hackernoon.com/crypto-winter-2018-vs-crypto-summer-2022)
+
 [Most Crypto Exchanges are 'Secretly' Insolvent](https://www.forbes.com/sites/stevenehrlich/2022/06/28/bankman-fried-some-crypto-exchanges-already-secretly-insolvent/?sh=6e0d372347f7)
 
 [8 Ways Crypto Wallets Can Be Hacked](https://hackernoon.com/8-ways-crypto-wallets-can-be-hacked)
