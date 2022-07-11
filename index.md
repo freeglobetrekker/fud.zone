@@ -50,6 +50,8 @@
 
 ### Today's FUD 
 
++ 07/11/2022 No FUD today. Took the week off to touch grass. Removed all socia media from my phone. Feel awesome. No FUD
+
 + 07/04/2022 America was never great (FUD)
 
 + 07/02/2022 OFFICIAL: Richard Heart is timing the market. 
