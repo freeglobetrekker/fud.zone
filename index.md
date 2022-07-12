@@ -9,6 +9,8 @@
 
 ### NEWS 
 
+[Scammers, they're coming for your bots](https://support-dev.discord.com/hc/en-us/articles/44047720280550)
+
 [Break Free From the Work-to-Earn Chains, Help-to-Earn Supports Play-to-Earn](https://hackernoon.com/break-free-from-the-work-to-earn-chains-help-to-earn-supports-play-to-earn)
 
 [Crypto Winter 2018 vs. Crypto Summer 2022](https://hackernoon.com/crypto-winter-2018-vs-crypto-summer-2022)
