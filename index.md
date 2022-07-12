@@ -9,6 +9,8 @@
 
 ### NEWS 
 
+[Break Free From the Work-to-Earn Chains, Help-to-Earn Supports Play-to-Earn](https://hackernoon.com/break-free-from-the-work-to-earn-chains-help-to-earn-supports-play-to-earn)
+
 [Crypto Winter 2018 vs. Crypto Summer 2022](https://hackernoon.com/crypto-winter-2018-vs-crypto-summer-2022)
 
 [Most Crypto Exchanges are 'Secretly' Insolvent](https://www.forbes.com/sites/stevenehrlich/2022/06/28/bankman-fried-some-crypto-exchanges-already-secretly-insolvent/?sh=6e0d372347f7)
@@ -50,7 +52,7 @@
 
 ### Today's FUD 
 
-+ 07/11/2022 No FUD today. Took the week off to touch grass. Removed all socia media from my phone. Feel awesome. No FUD
++ 07/12/2022 Why doesn't someone make some kind of escrow service for all the plebs screaming for the untimely launch of Pulsechain? They get 25% now and 75% when Pulsechain launches and their tokens are received by the buyer (shrugs)
 
 + 07/04/2022 America was never great (FUD)
 
