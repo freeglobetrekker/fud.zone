@@ -54,7 +54,9 @@
 
 ### Today's FUD 
 
-+ 07/18/2022 Proof of work or proof of stake? [lol](https://www.cryptocompare.com/mining/guides/what-is-proof-of-stake/)
++ 07/18/2022 The Dollar Doom Loop Is Coming > [See Here](https://www.bloomberg.com/news/articles/2022-07-17/this-could-be-the-start-of-a-dollar-doom-loop-like-no-other?fromMostRead=true)
+
++ 07/17/2022 Proof of work or proof of stake? [lol](https://www.cryptocompare.com/mining/guides/what-is-proof-of-stake/)
 
 + 07/15/2022 Remember about a year ago when you started really diving deep into crypto & NFTs after 6 months of nothing? How's it feel to be there again?  
 
