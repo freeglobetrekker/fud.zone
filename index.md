@@ -54,6 +54,8 @@
 
 ### Today's FUD 
 
++ 07/18/2022 Proof of work or proof of stake? [lol](https://www.cryptocompare.com/mining/guides/what-is-proof-of-stake/)
+
 + 07/15/2022 Remember about a year ago when you started really diving deep into crypto & NFTs after 6 months of nothing? How's it feel to be there again?  
 
 + 07/12/2022 Why doesn't someone make some kind of escrow service for all the plebs screaming for the untimely launch of Pulsechain? They get 25% now and 75% when Pulsechain launches and their tokens are received by the buyer (shrugs)
