@@ -54,6 +54,8 @@
 
 ### Today's FUD 
 
++ 07/21/2022 Polygon's [zkEVM](https://www.prnewswire.com/ae/news-releases/polygon-announces-the-worlds-first-zero-knowledge-zk-scaling-solution-fully-compatible-with-ethereum-301589771.html) is going to outperform Pulsechain 
+
 + 07/18/2022 The Dollar Doom Loop Is Coming > [See Here](https://www.bloomberg.com/news/articles/2022-07-17/this-could-be-the-start-of-a-dollar-doom-loop-like-no-other?fromMostRead=true)
 
 + 07/17/2022 Proof of work or proof of stake? [lol](https://www.cryptocompare.com/mining/guides/what-is-proof-of-stake/)
