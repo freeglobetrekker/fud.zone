@@ -9,6 +9,8 @@
 
 ### NEWS 
 
+[Polygon Announces The World's First Zero-Knowledge (ZK) Scaling Solution Fully Compatible with Ethereum](https://www.prnewswire.com/ae/news-releases/polygon-announces-the-worlds-first-zero-knowledge-zk-scaling-solution-fully-compatible-with-ethereum-301589771.html)
+
 [Scammers, they're coming for your bots](https://support-dev.discord.com/hc/en-us/articles/44047720280550)
 
 [Break Free From the Work-to-Earn Chains, Help-to-Earn Supports Play-to-Earn](https://hackernoon.com/break-free-from-the-work-to-earn-chains-help-to-earn-supports-play-to-earn)
