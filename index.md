@@ -56,6 +56,8 @@
 
 ### Today's FUD 
 
++ 07/23/2022 Crypto VCs are done with blowing through wads of [cash](https://www.vice.com/en/article/93awmz/venture-capitalists-say-the-era-of-recklessly-burning-cash-is-over)
+
 + 07/22/2022 Crowdfunding crypto is mostly a [scam](https://hackernoon.com/how-crowdfunding-impacts-the-crypto-market)
 
 + 07/21/2022 Polygon's [zkEVM](https://www.prnewswire.com/ae/news-releases/polygon-announces-the-worlds-first-zero-knowledge-zk-scaling-solution-fully-compatible-with-ethereum-301589771.html) is going to outperform Pulsechain 
