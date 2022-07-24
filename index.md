@@ -56,6 +56,8 @@
 
 ### Today's FUD 
 
++ 07/24/2022 Whatever is happening to you today, tomorrow could be a lot worse. 
+
 + 07/23/2022 Crypto VCs are done with blowing through wads of [cash](https://www.vice.com/en/article/93awmz/venture-capitalists-say-the-era-of-recklessly-burning-cash-is-over)
 
 + 07/22/2022 Crowdfunding crypto is mostly a [scam](https://hackernoon.com/how-crowdfunding-impacts-the-crypto-market)
