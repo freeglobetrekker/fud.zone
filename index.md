@@ -56,6 +56,8 @@
 
 ### Today's FUD 
 
++ 07/24/2022 Gaming NFTs just don't work -Minecraft
+
 + 07/24/2022 Whatever is happening to you today, tomorrow could be a lot worse. 
 
 + 07/23/2022 Crypto VCs are done with blowing through wads of [cash](https://www.vice.com/en/article/93awmz/venture-capitalists-say-the-era-of-recklessly-burning-cash-is-over)
@@ -212,14 +214,12 @@ Well Established #P2E Game = [Splinterland](https://splinterlands.com?ref=freegl
 
 The ENS of 2022 = [$FABRIC](https://metafabric.io/) 
 
-The Instagram of NFTs = [Nafter.io](https://www.nafter.io)
+The Instagram of Scams = [Nafter.io](https://www.nafter.io)
 
 Build Your Own Affiliate Program for Free = [Goaffpro](https://goaffpro.com/#freeglobetrekke)
 
+An Epic Play AND Earn Launching Soon = [.](https://twitter.com/EdenGenesisGame)
 
-### COMMS
-
-Add the creator on [Twitter](https://www.twitter.com/freeglobetrekk)
 
 ### ABOUT FUD.ZONE
 
