@@ -56,6 +56,8 @@
 
 ### Today's FUD 
 
++ 07/27/2022 Play AND earn is dead. 
+
 + 07/24/2022 Gaming NFTs just don't work -Minecraft
 
 + 07/24/2022 Whatever is happening to you today, tomorrow could be a lot worse. 
