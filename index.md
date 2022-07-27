@@ -193,16 +193,13 @@ thanks again for creating unsustainable risky products, then marketing them as s
 
 + 10/01/2021 Well, well, well, what do we have here. An actual [FUD FARM](https://twitter.com/FudFarm)
 
-### MARKETPLACE
-WolfDotGam.ETH for sale! DM  [FreeGlobeTrekk](https://www.twitter.com/freeglobetrekk) with Offer
-
-Like HEX? Pulsechain? Show Off in Style with [HEXMerch.shop](https://www.hexmerch.shop) Premium Accessories
-
-Is Your Cannabis Safe [CLICK Here](https://www.MasonBrite.com/KIT)
++ 09/17/2021 [FUD.ZONE](https://www.FUD.ZONE）is born anew
 
 ### SCAMMERS
 
 [The Most Elaborate Scam Hitting the NFT & Crypto Space in 2022 - Full Thread](https://twitter.com/thomasg_eth/status/1492663192404779013)
+
+[The NFT Instagram of Scams Nafter.io](https://www.nafter.io)
 
 ### IMPORTANT LINKS
 
@@ -210,17 +207,15 @@ Work with Anon Teams? You Need to get [MetaFabric.io](https://www.emperor.met.id
 
 Best Game Theory NFT Project = [Wolf.Game](https://www.wolf.game)
 
-Biggest Airdrop of All Time = [PulseX.com](https://www.pulsex.com) 
+Biggest FREE Airdrop of ALL Time = [PulseX.com](https://www.pulsex.com) 
 
 Well Established #P2E Game = [Splinterland](https://splinterlands.com?ref=freeglobetrekker) 
 
 The ENS of 2022 = [$FABRIC](https://metafabric.io/) 
 
-The Instagram of Scams = [Nafter.io](https://www.nafter.io)
-
 Build Your Own Affiliate Program for Free = [Goaffpro](https://goaffpro.com/#freeglobetrekke)
 
-An Epic Play AND Earn Launching Soon = [.](https://twitter.com/EdenGenesisGame)
+An Epic Play AND Earn Launching Soon = [.](https://www.edengenesis.io
 
 
 ### ABOUT FUD.ZONE
