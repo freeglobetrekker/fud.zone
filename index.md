@@ -215,7 +215,7 @@ The ENS of 2022 = [$FABRIC](https://metafabric.io/)
 
 Build Your Own Affiliate Program for Free = [Goaffpro](https://goaffpro.com/#freeglobetrekke)
 
-An Epic Play AND Earn Launching Soon = [.](https://www.edengenesis.io
+An Epic Play AND Earn Launching Soon = [Eden Genesis](https://www.edengenesis.io)
 
 
 ### ABOUT FUD.ZONE
