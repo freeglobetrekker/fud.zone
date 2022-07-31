@@ -9,7 +9,7 @@
 
 ### NEWS 
 
-
+[Art NFTs More Than Just Art?](https://hackernoon.com/are-nfts-more-than-just-art)
 
 [Polygon Announces The World's First Zero-Knowledge (ZK) Scaling Solution Fully Compatible with Ethereum](https://www.prnewswire.com/ae/news-releases/polygon-announces-the-worlds-first-zero-knowledge-zk-scaling-solution-fully-compatible-with-ethereum-301589771.html)
 
