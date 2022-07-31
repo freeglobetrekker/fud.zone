@@ -2,12 +2,14 @@
 
 ### "The Best Answer to a Fudder, Is None At All" -A Person on Tik Tok
 
-### FUD.Zone Quotes o' July 2022
+### FUD.Zone Quotes o' August 2022
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 "#Hexicans have diamond hands that were forged in the fire of FUD"
 
 ### NEWS 
+
+
 
 [Polygon Announces The World's First Zero-Knowledge (ZK) Scaling Solution Fully Compatible with Ethereum](https://www.prnewswire.com/ae/news-releases/polygon-announces-the-worlds-first-zero-knowledge-zk-scaling-solution-fully-compatible-with-ethereum-301589771.html)
 
@@ -55,6 +57,8 @@
 
 
 ### Today's FUD 
+
++ 07/31/2022 [Linux](https://hackernoon.com/10-things-i-love-about-linux) isn't useful anymore. 
 
 + 07/27/2022 Play AND earn is dead. 
 
