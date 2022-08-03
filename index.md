@@ -58,6 +58,8 @@
 
 ### Today's FUD 
 
++ 08/03/2022 [Solana](https://finance.yahoo.com/news/phantom-wallet-exploit-drains-millions-002950787.html) will not be around in 10 years 
+
 + 07/31/2022 [Linux](https://hackernoon.com/10-things-i-love-about-linux) isn't useful anymore. 
 
 + 07/27/2022 Play AND earn is dead. 
