@@ -9,6 +9,8 @@
 
 ### NEWS 
 
+[Facebook, IG App Can Steal secrets, and Users Can't Turn It Off!](https://hackernoon.com/expert-facebook-ig-app-can-steal-secrets-and-users-cant-turn-it-off)
+
 [Art NFTs More Than Just Art?](https://hackernoon.com/are-nfts-more-than-just-art)
 
 [Polygon Announces The World's First Zero-Knowledge (ZK) Scaling Solution Fully Compatible with Ethereum](https://www.prnewswire.com/ae/news-releases/polygon-announces-the-worlds-first-zero-knowledge-zk-scaling-solution-fully-compatible-with-ethereum-301589771.html)
@@ -57,6 +59,8 @@
 
 
 ### Today's FUD 
+
++ 08/24/2022 The Highest of Stakes will be sold to Amazon.
 
 + 08/10/2022 Pulsechain will never launch. 
 
