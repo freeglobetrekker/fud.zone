@@ -9,6 +9,8 @@
 
 ### NEWS 
 
+[Stablecoins: Everything You Need to Know](https://hackernoon.com/stable-coin-everything-you-need-to-know)
+
 [Facebook, IG App Can Steal secrets, and Users Can't Turn It Off!](https://hackernoon.com/expert-facebook-ig-app-can-steal-secrets-and-users-cant-turn-it-off)
 
 [Art NFTs More Than Just Art?](https://hackernoon.com/are-nfts-more-than-just-art)
