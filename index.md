@@ -1,4 +1,4 @@
-## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING](https://us.horus-x.com/?ref=8DXfZjir5yX)
+## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING - Stop Ruining Your Eye Sight with Screens!](https://us.horus-x.com/?ref=8DXfZjir5yX)
 
 ### "The Best Answer to a Fudder, Is None At All" -A Person on Tik Tok
 
