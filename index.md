@@ -5,7 +5,6 @@
 ### FUD.Zone Quotes o' August 2022
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
-"#Hexicans have diamond hands that were forged in the fire of FUD"
 
 ### NEWS 
 
