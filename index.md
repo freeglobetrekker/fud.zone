@@ -61,6 +61,8 @@
 
 ### Today's FUD 
 
++ 09/06/2022 Games that allow you to earn money in game will never work in our life time. 
+
 + 09/02/2022 Getting bored of the bear market? Why not speculate on your [own currency](https://hackernoon.com/how-to-create-your-own-cryptocurrency-tips-to-get-started-947ba92f79f9)
 
 + 08/24/2022 The Highest of Stakes will be sold to Amazon.
