@@ -2,11 +2,15 @@
 
 ### "The Best Answer to a Fudder, Is None At All" -A Person on Tik Tok
 
-### FUD.Zone Quotes o' September 2022
+### FUD.Zone Quotes o' October 2022
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 
 ### NEWS 
+
+[Eden Genesis Announces a Huge Partnership Coming for NFT Gaming Raising Eyebrows](https://www.twitter.com/edengenesisgame)
+
+[Interpol Seeks Arrest of Failed POS Crypto-Firm Boss Do Kwon Who is Reported to Be Hiding Under the Ocean](https://www.bbc.com/news/technology-63033262)
 
 [Stablecoins: Everything You Need to Know](https://hackernoon.com/stable-coin-everything-you-need-to-know)
 
@@ -60,6 +64,8 @@
 
 
 ### Today's FUD 
+
++ 09/27/2022 Do Kwon is waiting patiently for Interpol to find him but says he has [nothing to hide](https://www.bbc.com/news/technology-63033262). 
 
 + 09/14/2022 The ETH merge has done nothing for crypto
 
@@ -236,7 +242,7 @@ The ENS of 2022 = [$FABRIC](https://metafabric.io/)
 
 Build Your Own Affiliate Program for Free = [Goaffpro](https://goaffpro.com/#freeglobetrekke)
 
-An Epic Play AND Earn Launching Soon = [Eden Genesis](https://www.edengenesis.io)
+An Epic Play AND Earn Game Like Hades on Steam Launching Q4 2022 = [Eden Genesis](https://www.edengenesis.io)
 
 
 ### ABOUT FUD.ZONE
