@@ -2,7 +2,7 @@
 
 ### "The Best Answer to a Fudder, Is None At All" -A Person on Tik Tok
 
-### FUD.Zone Quotes o' October 2022
+### FUD.Zone Quote o' October 2022
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 
