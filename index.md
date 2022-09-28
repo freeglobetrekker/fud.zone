@@ -67,7 +67,7 @@
 
 + 09/27/2022 Do Kwon is waiting patiently for Interpol to find him but says he has [nothing to hide](https://www.bbc.com/news/technology-63033262)
 
-+ 09/17/2022 You are terrible at Tik Tok and (here)[https://hackernoon.com/heres-why-your-tiktok-marketing-is-failing] is why. 
++ 09/17/2022 You are terrible at Tik Tok and [here](https://hackernoon.com/heres-why-your-tiktok-marketing-is-failing) is why. 
 
 + 09/14/2022 The ETH merge has done nothing for crypto
 
