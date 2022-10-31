@@ -1,70 +1,13 @@
 ## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING - Stop Ruining Your Eye Sight with Screens!](https://us.horus-x.com/?ref=8DXfZjir5yX)
 
-### "The Best Answer to a Fudder, Is None At All" -A Person on Tik Tok
-
-### FUD.Zone Quote o' October 2022
+### FUD.Zone Quote o' November 2022
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
-
-### NEWS 
-
-[Eden Genesis Announces a Huge Partnership Coming for NFT Gaming Raising Eyebrows](https://www.twitter.com/edengenesisgame)
-
-[Interpol Seeks Arrest of Failed POS Crypto-Firm Boss Do Kwon Who is Reported to Be Hiding Under the Ocean](https://www.bbc.com/news/technology-63033262)
-
-[Stablecoins: Everything You Need to Know](https://hackernoon.com/stable-coin-everything-you-need-to-know)
-
-[Facebook, IG App Can Steal secrets, and Users Can't Turn It Off!](https://hackernoon.com/expert-facebook-ig-app-can-steal-secrets-and-users-cant-turn-it-off)
-
-[Art NFTs More Than Just Art?](https://hackernoon.com/are-nfts-more-than-just-art)
-
-[Polygon Announces The World's First Zero-Knowledge (ZK) Scaling Solution Fully Compatible with Ethereum](https://www.prnewswire.com/ae/news-releases/polygon-announces-the-worlds-first-zero-knowledge-zk-scaling-solution-fully-compatible-with-ethereum-301589771.html)
-
-[Scammers, they're coming for your bots](https://support-dev.discord.com/hc/en-us/articles/44047720280550)
-
-[Break Free From the Work-to-Earn Chains, Help-to-Earn Supports Play-to-Earn](https://hackernoon.com/break-free-from-the-work-to-earn-chains-help-to-earn-supports-play-to-earn)
-
-[Crypto Winter 2018 vs. Crypto Summer 2022](https://hackernoon.com/crypto-winter-2018-vs-crypto-summer-2022)
-
-[Most Crypto Exchanges are 'Secretly' Insolvent](https://www.forbes.com/sites/stevenehrlich/2022/06/28/bankman-fried-some-crypto-exchanges-already-secretly-insolvent/?sh=6e0d372347f7)
-
-[8 Ways Crypto Wallets Can Be Hacked](https://hackernoon.com/8-ways-crypto-wallets-can-be-hacked)
-
-[DeFi+GameFi: How Decentralized Finance Helps Blockchain Games Become More Profitable for Users](https://hackernoon.com/defigamefi-how-decentralized-finance-helps-blockchain-games-become-more-profitable-for-users)
-
-[Is The World Ready for NFTFi - DeFi + NFT?](https://hackernoon.com/is-the-world-ready-for-nftfi-defi-nft-452333a8?ref=hackernoon.com)
-
-[Have Humans Reached Peak Performance in Technology?](https://www.bbc.com/future/article/20220615-do-we-need-a-better-understanding-of-progress)
-
-[Monkey Bet Dao Rugpool Changes Hands to Look Labs](https://www.looklabs.com/2022-bear-market-update)
-
-[You Are Doing Manifestation Wrong](https://hackernoon.com/you-are-doing-manifestation-wrong)
-
-[Is Cloud Gaming Doomed Because of Physics?](https://hackernoon.com/is-cloud-gaming-doomed-because-of-physics)
-
-[US Investigates Binance Over BNB ICO](https://decrypt.co/102150/sec-binance-bnb-ico-report)
-
-[Was the Luna Crash Planned or an Imperfection in the System?](https://hackernoon.com/luna-debacle-a-planned-attack-or-an-imperfection-in-the-system)
-
-[Crypto Market Making: A Complete Introduction](https://hackernoon.com/crypto-market-making-a-complete-introduction)
-
-[Luna Crashes, Again](https://www.cnet.com/personal-finance/crypto/terra-2-0-launched-today-following-luna-meltdown-this-weeks-top-bitcoin-and-crypto-news/)
-
-[The Sandbox Partners with DanceFight](https://nftevening.com/the-sandbox-partners-with-dancefight-to-bring-epic-dance-battles-to-the-metaverse/)
-
-[NFT Cloud Service Built By Salesforce](https://nftevening.com/nft-cloud-service-built-by-salesforce-get-ready-for-the-future/)
-
-[World's Largest Airdrop is About to Happen at PulseX.com](https://www.pulsex.com) 
-
-[A Brief Glimpse into the Sacrificing of $BTC $ETH & More](https://www.pulsex.com) 
-
-[A Brief Introduction to Ethereum Swarm](https://hackernoon.com/a-brief-introduction-to-ethereum-swarm)
-
-[Learn K-Means Clustering by Quantizing Color Images in Python](https://hackernoon.com/learn-k-means-clustering-by-quantizing-color-images-in-python)
-
+"The Best Answer to a Fudder, Is None At All" -A Person on Tik Tok
 
 ### Today's FUD 
 
++ 10/31/2022 I just realized that if [Richard Heart](https://twitter.com/RichardHeartWin) were to be waiting for something to happen to launch PulseChain it's for the [Uniswap V3 license](https://twitter.com/Toos_pooky/status/1586933382021259265?t=wh-0DMUu2TxkOfdcd6ZGoQ&s=35) to expire since he's forking the code of it.
 
 + 09/29/2022 Crypto will never go back up again. 
 
@@ -227,11 +170,69 @@ thanks again for creating unsustainable risky products, then marketing them as s
 
 + 09/17/2021 [FUD.ZONE](https://www.FUD.ZONE）is born anew
 
+### NEWS 
+
+[Eden Genesis Announces a Huge Partnership Coming for NFT Gaming Raising Eyebrows](https://www.twitter.com/edengenesisgame)
+
+[Interpol Seeks Arrest of Failed POS Crypto-Firm Boss Do Kwon Who is Reported to Be Hiding Under the Ocean](https://www.bbc.com/news/technology-63033262)
+
+[Stablecoins: Everything You Need to Know](https://hackernoon.com/stable-coin-everything-you-need-to-know)
+
+[Facebook, IG App Can Steal secrets, and Users Can't Turn It Off!](https://hackernoon.com/expert-facebook-ig-app-can-steal-secrets-and-users-cant-turn-it-off)
+
+[Art NFTs More Than Just Art?](https://hackernoon.com/are-nfts-more-than-just-art)
+
+[Polygon Announces The World's First Zero-Knowledge (ZK) Scaling Solution Fully Compatible with Ethereum](https://www.prnewswire.com/ae/news-releases/polygon-announces-the-worlds-first-zero-knowledge-zk-scaling-solution-fully-compatible-with-ethereum-301589771.html)
+
+[Scammers, they're coming for your bots](https://support-dev.discord.com/hc/en-us/articles/44047720280550)
+
+[Break Free From the Work-to-Earn Chains, Help-to-Earn Supports Play-to-Earn](https://hackernoon.com/break-free-from-the-work-to-earn-chains-help-to-earn-supports-play-to-earn)
+
+[Crypto Winter 2018 vs. Crypto Summer 2022](https://hackernoon.com/crypto-winter-2018-vs-crypto-summer-2022)
+
+[Most Crypto Exchanges are 'Secretly' Insolvent](https://www.forbes.com/sites/stevenehrlich/2022/06/28/bankman-fried-some-crypto-exchanges-already-secretly-insolvent/?sh=6e0d372347f7)
+
+[8 Ways Crypto Wallets Can Be Hacked](https://hackernoon.com/8-ways-crypto-wallets-can-be-hacked)
+
+[DeFi+GameFi: How Decentralized Finance Helps Blockchain Games Become More Profitable for Users](https://hackernoon.com/defigamefi-how-decentralized-finance-helps-blockchain-games-become-more-profitable-for-users)
+
+[Is The World Ready for NFTFi - DeFi + NFT?](https://hackernoon.com/is-the-world-ready-for-nftfi-defi-nft-452333a8?ref=hackernoon.com)
+
+[Have Humans Reached Peak Performance in Technology?](https://www.bbc.com/future/article/20220615-do-we-need-a-better-understanding-of-progress)
+
+[Monkey Bet Dao Rugpool Changes Hands to Look Labs](https://www.looklabs.com/2022-bear-market-update)
+
+[You Are Doing Manifestation Wrong](https://hackernoon.com/you-are-doing-manifestation-wrong)
+
+[Is Cloud Gaming Doomed Because of Physics?](https://hackernoon.com/is-cloud-gaming-doomed-because-of-physics)
+
+[US Investigates Binance Over BNB ICO](https://decrypt.co/102150/sec-binance-bnb-ico-report)
+
+[Was the Luna Crash Planned or an Imperfection in the System?](https://hackernoon.com/luna-debacle-a-planned-attack-or-an-imperfection-in-the-system)
+
+[Crypto Market Making: A Complete Introduction](https://hackernoon.com/crypto-market-making-a-complete-introduction)
+
+[Luna Crashes, Again](https://www.cnet.com/personal-finance/crypto/terra-2-0-launched-today-following-luna-meltdown-this-weeks-top-bitcoin-and-crypto-news/)
+
+[The Sandbox Partners with DanceFight](https://nftevening.com/the-sandbox-partners-with-dancefight-to-bring-epic-dance-battles-to-the-metaverse/)
+
+[NFT Cloud Service Built By Salesforce](https://nftevening.com/nft-cloud-service-built-by-salesforce-get-ready-for-the-future/)
+
+[World's Largest Airdrop is About to Happen at PulseX.com](https://www.pulsex.com) 
+
+[A Brief Glimpse into the Sacrificing of $BTC $ETH & More](https://www.pulsex.com) 
+
+[A Brief Introduction to Ethereum Swarm](https://hackernoon.com/a-brief-introduction-to-ethereum-swarm)
+
+[Learn K-Means Clustering by Quantizing Color Images in Python](https://hackernoon.com/learn-k-means-clustering-by-quantizing-color-images-in-python)
+
+
 ### SCAMMERS
 
 [The Most Elaborate Scam Hitting the NFT & Crypto Space in 2022 - Full Thread](https://twitter.com/thomasg_eth/status/1492663192404779013)
 
 [The NFT Instagram of Scams Nafter.io](https://www.nafter.io)
+
 
 ### IMPORTANT LINKS
 
