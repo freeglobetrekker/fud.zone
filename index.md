@@ -7,6 +7,8 @@
 
 ### Today's FUD 
 
++ 11/03/2022 "I will stop bragging about calling the top when I start bragging about calling the bottom. #bitcoin" [Who said that?](https://twitter.com/RichardHeartWin/status/1579888328237023234)
+
 + 10/31/2022 I just realized that if [Richard Heart](https://twitter.com/RichardHeartWin) were to be waiting for something to happen to launch PulseChain it's for the [Uniswap V3 license](https://twitter.com/Toos_pooky/status/1586933382021259265?t=wh-0DMUu2TxkOfdcd6ZGoQ&s=35) to expire since he's forking the code of it.
 
 + 09/29/2022 Crypto will never go back up again. 
