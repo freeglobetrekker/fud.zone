@@ -7,6 +7,8 @@
 
 ### Today's FUD 
 
++ 11/13/2022 CeFI is over. 
+
 + 11/11/2022 ..........No FUD today. Seems all exchanges are now at risk of collapsing and all pegged "stable" coins could depeg. Not Your Keys, Not Your Coins.
 
 + 11/03/2022 "I will stop bragging about calling the top when I start bragging about calling the bottom. #bitcoin" [Who said that?](https://twitter.com/RichardHeartWin/status/1579888328237023234)
