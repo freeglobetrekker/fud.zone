@@ -7,6 +7,10 @@
 
 ### Today's FUD 
 
++ 11/21/2022 Bitcoin Grayscale's proof of reserves [aren't](https://www.twitter.com/freeglobetrekk) fine. 
+
++ 11/20/2022 "A very credible source, who I cannot name, says something in DeFI will break in the next few weeks that will completely wipe out the industry." 
+
 + 11/17/2022 Bitcoin is going to [0](https://www.twitter.com/freeglobetrekk)
 
 + 11/13/2022 CeFI is over. 
