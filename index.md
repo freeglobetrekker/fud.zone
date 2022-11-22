@@ -7,7 +7,7 @@
 
 ### Today's FUD 
 
-+ 11/22/2022 Crypto is dead but the ponzi unsustainable market and terribly over leveraged businesses are (alive)[https://twitter.com/ZssBecker/status/1595023184142688256].
++ 11/22/2022 Crypto is dead but the ponzi unsustainable market and terribly over leveraged businesses are alive and well. 
 
 + 11/21/2022 Bitcoin Grayscale's proof of reserves [aren't](https://www.twitter.com/freeglobetrekk) fine. 
 
