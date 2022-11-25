@@ -1,4 +1,4 @@
-## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING - Stop Ruining Your Eye Sight with Screens!](https://us.horus-x.com/?ref=8DXfZjir5yX)
+## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING - Stop Ruining Your Eye Sight with Screens!](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide security for interacting with blockchain applications instead of just storing your keys for basic transfers. It allows users to verify what they're signing on secure a 5" TFT touchscreen, because, if you can't verify precisely what you're signing on a separate secure screen there's no point in using a hardware wallet. This means your cryptocurrency is secured even when your paired computer or phone is compromised.]
 
 ### FUD.Zone Quote o' November 2022
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
@@ -6,6 +6,8 @@
 "The Best Answer to a Fudder, Is None At All" -A Person on Tik Tok
 
 ### Today's FUD 
+
++ 11/25/2022 Now that Thanksgiving is over, can we get back to fudding crypto? I mean Pulsechain is one day closer every day, all day. 
 
 + 11/22/2022 Crypto is dead but the ponzi unsustainable market and terribly over leveraged businesses are alive and well. 
 
