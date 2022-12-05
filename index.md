@@ -7,6 +7,8 @@
 
 ### Today's FUD 
 
++ 12/05/2022 News flash: Surrounding yourself with people that are richer than you will not make you rich. Hope is pointless without action. Stop fudding yourself. 
+
 + 11/25/2022 Now that Thanksgiving is over, can we get back to fudding crypto? I mean Pulsechain is one day closer every day, all day. 
 
 + 11/22/2022 Crypto is dead but the ponzi unsustainable market and terribly over leveraged businesses are alive and well. 
