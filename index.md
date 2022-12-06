@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 12/07/2022  Fool me once, shame on you. Fool me twice, shame on [me](https://www.twitter.com/richardheartwin). 
+
 + 12/06/2022 Hey look, another coin by Richard [Schueler](https://cfdtoken.com/)
  
 + 12/05/2022 News flash: Surrounding yourself with people that are richer than you will not make you rich. Hope is pointless without action. Stop fudding yourself. 
