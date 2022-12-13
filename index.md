@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 12/13/2022 "Sadness is but a wall between two gardens." [On the State of Crypto](https://www.twitter.com/freeglobetrekk)
+
 + 12/07/2022  Fool me once, shame on you. Fool me twice, shame on [me](https://www.twitter.com/richardheartwin). 
 
 + 12/06/2022 Hey look, another coin by Richard [Schueler](https://cfdtoken.com/)
