@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 12/16/2022 Who said, "Guys..guys..I want v3 as bad as ou do"? What we actually want is v3.1b
+
 + 12/13/2022 "Sadness is but a wall between two gardens." [On the State of Crypto](https://www.twitter.com/freeglobetrekk)
 
 + 12/07/2022  Fool me once, shame on you. Fool me twice, shame on [me](https://www.twitter.com/richardheartwin). 
