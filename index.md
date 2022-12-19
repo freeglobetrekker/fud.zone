@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 12/20/2022 (Is _________ the key for 2023?)[https://www.macrodesiac.com/china-the-key-for-2023/?ref=macrodesiac-newsletter&attribution_id=63a053e03a3192003d68c722&attribution_type=post] 
+
 + 12/19/2022 Great, another (Solana)[Raydium LP Exploiter's] hack 
 
 + 12/16/2022 Who said, "Guys..guys..I want v3 as bad as ou do"? What we actually want is v3.1b
