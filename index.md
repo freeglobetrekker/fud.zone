@@ -1,4 +1,4 @@
-## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING - Stop Ruining Your Eye Sight with Screens!](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide military grade security for your crypto. 
+## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING Glasses](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide military grade security for your crypto. 
 
 ### FUD.Zone Quote o' December 2022
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
