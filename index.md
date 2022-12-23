@@ -5,7 +5,9 @@
 
 ### Today's FUD 
 
-+ 12/23/2022 "It's hilarious how if you comment anything questioning about wen Pulsechain people fly off the chain. The imaginary chain that is still more real than Pulsechain itself." [-Author Unknown](https://www.twitter.com/freeglobetrekk)
++ 12/23/2022 Turn that Bitcoin you got for Christmas into [stuff](https://changelly.com/blog/who-accepts-bitcoin-list/) for the house. 
+
++ 12/22/2022 "It's hilarious how if you comment anything questioning about wen Pulsechain people fly off the chain. The imaginary chain that is still more real than Pulsechain itself." [-Author Unknown](https://www.twitter.com/freeglobetrekk)
 
 + 12/20/2022 Is _________ the [key](https://www.macrodesiac.com/china-the-key-for-2023/?ref=macrodesiac-newsletter&attribution_id=63a053e03a3192003d68c722&attribution_type=post) for 2023?
 
