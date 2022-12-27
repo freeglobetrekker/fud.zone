@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 12/27/2022 This [tool](https://openai.com/blog/chatgpt/) will destroy many industries. 
+
 + 12/23/2022 Turn that Bitcoin you got for Christmas into [stuff](https://changelly.com/blog/who-accepts-bitcoin-list/) for the house. 
 
 + 12/22/2022 "It's hilarious how if you comment anything questioning about wen Pulsechain people fly off the chain. The imaginary chain that is still more real than Pulsechain itself." [-Author Unknown](https://www.twitter.com/freeglobetrekk)
