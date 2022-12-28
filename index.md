@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 12/28/2022 SBF knowingly diverted [____________](https://hackernoon.com/sbf-knowingly-diverted-ftx-customers-funds-to-fuel-alamedas-growth-and-raise-billions-per-lawsuit) customers' funds to fuel Alameda's growth and raise billions
+
 + 12/27/2022 This [tool](https://openai.com/blog/chatgpt/) will destroy many industries. 
 
 + 12/23/2022 Bitcoin isn't [worthless](https://changelly.com/blog/who-accepts-bitcoin-list/)
