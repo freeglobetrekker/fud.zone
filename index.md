@@ -5,6 +5,10 @@
 
 ### Today's FUD 
 
++ 12/30/2022 Bob sat around waiting for #Pulsechain😴 Bill got a second job so he could #buythedip💼 Gene started building something in #web3🔨
+
+[Be like Phil or Gene.](https://twitter.com/freeglobetrekk/status/1608816362838986752) Don't be like Bob.👍 What are YOU doing in the #bearmarket? 🤔
+
 + 12/28/2022 SBF knowingly diverted [____________](https://hackernoon.com/sbf-knowingly-diverted-ftx-customers-funds-to-fuel-alamedas-growth-and-raise-billions-per-lawsuit) customers' funds to fuel Alameda's growth and raise billions
 
 + 12/27/2022 This [tool](https://openai.com/blog/chatgpt/) will destroy many industries. 
