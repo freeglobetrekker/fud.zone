@@ -5,6 +5,10 @@
 
 ### Today's FUD 
 
++ 1/05/2023 Will [ChatGBP](https://alts.substack.com/p/chatgpt-business-listings?utm_source=post-email-title&publication_id=65511&post_id=94604880&isFreemail=true&utm_medium=email) take over everything?
+
++ 1/01/2023 Happy New Year to everyone who isn't waiting for Pulsechain to launch because they overleveraged themselves
+
 + 12/30/2022 Bob sat around waiting for #Pulsechain😴 Bill got a second job so he could #buythedip💼 Gene started building something in #web3🔨 [Be like Phil or Gene.](https://twitter.com/freeglobetrekk/status/1608816362838986752) Don't be like Bob.👍 What are YOU doing in the #bearmarket? 🤔
 
 + 12/28/2022 SBF knowingly diverted [____________](https://hackernoon.com/sbf-knowingly-diverted-ftx-customers-funds-to-fuel-alamedas-growth-and-raise-billions-per-lawsuit) customers' funds to fuel Alameda's growth and raise billions
