@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 01/06/2023 It's too late for [Bitcoin](https://koalendar.com/e/meet-with-steve-peters)
+
 + 1/05/2023 Will [ChatGBP](https://alts.substack.com/p/chatgpt-business-listings?utm_source=post-email-title&publication_id=65511&post_id=94604880&isFreemail=true&utm_medium=email) take over everything?
 
 + 1/01/2023 Happy New Year to everyone who isn't waiting for Pulsechain to launch because they overleveraged themselves
