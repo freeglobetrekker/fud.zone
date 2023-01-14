@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 01/14/2023 The Average Sacrifice for #PulseChain and #PulseX is roughly $1,000 to $2,000 zone for most people. Therefore it's possible both #PLS and #PLSX do 100x in first cycle, but unlikely they do 1000x (as it makes them all Millionaires in 1 cycle)
+
 + 01/06/2023 It's too late for [Bitcoin](https://koalendar.com/e/meet-with-steve-peters)
 
 + 1/05/2023 Will [ChatGBP](https://alts.substack.com/p/chatgpt-business-listings?utm_source=post-email-title&publication_id=65511&post_id=94604880&isFreemail=true&utm_medium=email) take over everything?
