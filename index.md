@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 0/17/2023 Jack Levin will launch an L1 before Richard Heart.
+
 + 01/14/2023 The Average Sacrifice for #PulseChain and #PulseX is roughly $1,000 to $2,000 zone for most people. Therefore it's possible both #PLS and #PLSX do 100x in first cycle, but unlikely they do 1000x (as it makes them all Millionaires in 1 cycle)
 
 + 01/06/2023 It's too late for [Bitcoin](https://koalendar.com/e/meet-with-steve-peters)
