@@ -1,11 +1,13 @@
 ## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING Glasses](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide military grade security for your crypto. 
 
-### [FUD.Zone](https://www.fud.zone) Quote o' January 2023
+### [FUD.Zone](https://www.fud.zone) Quote o' February 2023
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 ### Today's FUD 
 
-+ 0/17/2023 Jack Levin will launch an L1 before Richard Heart.
++ 01/29/2023 Jack Levin launched an L1 before Richard Heart.
+
++ 01/17/2023 Jack Levin will launch an L1 before Richard Heart.
 
 + 01/14/2023 The Average Sacrifice for #PulseChain and #PulseX is roughly $1,000 to $2,000 zone for most people. Therefore it's possible both #PLS and #PLSX do 100x in first cycle, but unlikely they do 1000x (as it makes them all Millionaires in 1 cycle)
 
