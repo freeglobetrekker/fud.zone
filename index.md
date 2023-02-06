@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 02/06/2023 Richard Heart is only giving updates because he's been pressured by Jack "the vampire" Levin to do so. 
+
 + 01/29/2023 Jack Levin launched an L1 before Richard Heart.
 
 + 01/17/2023 Jack Levin will launch an L1 before Richard Heart.
