@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 02/08/2023 All unregulated altcoins are going to [0](https://www.basedconsulting.co).
+
 + 02/06/2023 Richard Heart is only giving updates because he's been pressured by Jack "the vampire" Levin to do so. 
 
 + 01/29/2023 Jack Levin launched an L1 before Richard Heart.
