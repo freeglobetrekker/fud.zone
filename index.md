@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 02/15/2023 Don't lose to fees. If you're not trading [Crypto CFDS](https://accopen.radexmarkets.com/?Ic=PP8UK&s=r6) what are you even doing?
+
 + 02/08/2023 All unregulated altcoins are going to [0](https://www.basedconsulting.co).
 
 + 02/06/2023 Richard Heart is only giving updates because he's been pressured by Jack "the vampire" Levin to do so. 
