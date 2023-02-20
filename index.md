@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 02/202/23 $HEX is a scam. 
+
 + 02/15/2023 Don't lose to fees. If you're not trading [Crypto CFDS](https://accopen.radexmarkets.com/?Ic=PP8UK&s=r6) what are you even doing?
 
 + 02/08/2023 All unregulated altcoins are going to [0](https://accopen.radexmarkets.com/?Ic=PP8UK&s=r6).
