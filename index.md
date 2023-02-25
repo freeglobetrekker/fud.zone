@@ -5,7 +5,9 @@
 
 ### Today's FUD 
 
-+ 02/202/23 $HEX is a scam. 
++ 02/25/2023 Even though HEX has been running flawlessly for 3 years now and I control 100% of what happens it is still an absolute ponzi scam. 
+
++ 02/20/2023 $HEX is a scam. 
 
 + 02/15/2023 Don't lose to fees. If you're not trading [Crypto CFDS](https://accopen.radexmarkets.com/?Ic=PP8UK&s=r6) what are you even doing?
 
