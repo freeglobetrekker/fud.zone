@@ -1,9 +1,11 @@
 ## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING Glasses](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide military grade security for your crypto. 
 
-### [FUD.Zone](https://www.fud.zone) Quote o' February 2023
+### [FUD.Zone](https://www.fud.zone) Quote o' March 2023
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 ### Today's FUD 
+
++ 03/02/2023 So like uh...HEX went up 200% in the last like whatever time but it's like a scam still. 
 
 + 02/25/2023 Even though HEX has been running flawlessly for 3 years now and I control 100% of what happens it is still an absolute ponzi scam. 
 
