@@ -5,7 +5,9 @@
 
 ### Today's FUD 
 
-+ 03/02/2023 So like uh...HEX went up 200% in the last like whatever time but it's like a scam still. 
++ 03/09/2023 "We need to make sure people don't get scammed in $HEX like they did with Celsius & Luna" (insert clown face here)
+
++ 03/02/2023 "So like uh...HEX went up 200% in the last like whatever time but it's like a scam still."
 
 + 02/25/2023 Even though HEX has been running flawlessly for 3 years now and I control 100% of what happens it is still an absolute ponzi scam. 
 
