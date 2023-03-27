@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 03/27/2023 "This is your warning that PulseChain and PulseX can launch at any time now without warning. http://PulseChain.com,  http://PulseX.com" [The King of Crypto](https://twitter.com/RichardHeartWin/status/1640102547988905985)
+
 + 03/22/2023 "The $more Richard tweets the further Pulsechain launch pushes back. I would say it’s safer for your emotions to think this way instead of getting sucked in again." [-TrevonJames.eth](https://twitter.com/TrVon/status/1637993001313083392)
 
 + 03/09/2023 "We need to make sure people don't get scammed in $HEX like they did with Celsius & Luna" (insert clown face here)
