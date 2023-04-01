@@ -1,9 +1,11 @@
 ## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING Glasses](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide military grade security for your crypto. 
 
-### [FUD.Zone](https://www.fud.zone) Quote o' March 2023
+### [FUD.Zone](https://www.fud.zone) Quote o' April 2023
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 ### Today's FUD 
+
++ 04/01/2023 Pulsechain has launched!!!!!!!! (there's no fool like an April fool)
 
 + 03/27/2023 "This is your warning that PulseChain and PulseX can launch at any time now without warning. http://PulseChain.com,  http://PulseX.com" [The King of Crypto](https://twitter.com/RichardHeartWin/status/1640102547988905985)
 
