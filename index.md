@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 04/06/2023 Binance is going to implode in 2023. 
+
 + 04/01/2023 Pulsechain has launched!!!!!!!! (there's no fool like an April fool)
 
 + 03/27/2023 "This is your warning that PulseChain and PulseX can launch at any time now without warning. http://PulseChain.com,  http://PulseX.com" [The King of Crypto](https://twitter.com/RichardHeartWin/status/1640102547988905985)
