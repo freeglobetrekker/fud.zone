@@ -1,9 +1,11 @@
 ## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING Glasses](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide military grade security for your crypto. 
 
-### [FUD.Zone](https://www.fud.zone) Quote o' April 2023
+### [FUD.Zone](https://www.fud.zone) Quote o' May 2023
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 ### Today's FUD 
+
++ 05/01/2023 Two weeks away to 'Mid-May' #Pulsechain launch! You heard it first here on FUD.ZONE
 
 + 04/06/2023 Binance is going to implode in 2023. 
 
