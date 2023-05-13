@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 05/13/2023 Dear Haters, we won. [Pulsechain Mainnet is Live](https://www.pulsechain.com)
+
 + 05/01/2023 Two weeks away to 'Mid-May' #Pulsechain launch! You heard it first here on FUD.ZONE
 
 + 04/06/2023 Binance is going to implode in 2023. 
