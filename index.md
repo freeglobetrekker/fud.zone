@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 06/09/2023 "The price is down so it must be a scam" No, it's an opportunity to get a discount. "The best time to buy is _____________" 
+
 + 05/13/2023 Dear Haters, we won. [Pulsechain Mainnet is Live](https://www.pulsechain.com)
 
 + 05/01/2023 Two weeks away to 'Mid-May' #Pulsechain launch! You heard it first here on FUD.ZONE
