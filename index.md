@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 07/13/2023 [The Highest of Stakes Official Trailer](https://www.youtube.com/watch?v=KtfjEg_ou6c) | The new crypto king or billion dollar conman?
+
 + 06/23/2023 From the founder: I went on Twitter today after 3 weeks and it's a bunch of losers and crybabies. Buy the dip. Stop buying the top. 
 
 + 06/09/2023 "The price is down so it must be a scam" No, it's an opportunity to get a discount. "The best time to buy is _____________" 
