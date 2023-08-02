@@ -1,9 +1,11 @@
 ## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING Glasses](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide military grade security for your crypto. 
 
-### [FUD.Zone](https://www.fud.zone) Quote o' July 2023
+### [FUD.Zone](https://www.fud.zone) Quote o' August 2023
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 ### Today's FUD 
+
++ 08/01/2023 Richard Heart is finally sued by the SEC, fulfilling a prophecy. Soon the SEC will storm HQ and arrest the code. 
 
 + 07/13/2023 [The Highest of Stakes Official Trailer](https://www.youtube.com/watch?v=KtfjEg_ou6c) | The new crypto king or billion dollar conman?
 
