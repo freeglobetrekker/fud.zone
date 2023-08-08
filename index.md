@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 08/08/2023 The SEC has stormed the $HEX HQ and seems to be confused by the brightly colored LV purse pile. 
+
 + 08/01/2023 Richard Heart is finally sued by the SEC, fulfilling his own prophecy. Soon the SEC will storm HQ and arrest the code. 
 
 + 07/13/2023 [The Highest of Stakes Official Trailer](https://www.youtube.com/watch?v=KtfjEg_ou6c) | The new crypto king or billion dollar conman?
