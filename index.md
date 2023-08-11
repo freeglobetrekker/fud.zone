@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 08/11/2023 "We're down 98% but we're up 4000X" -Chad Hexican
+
 + 08/08/2023 The SEC has stormed the $HEX HQ and seems to be confused by the brightly colored LV purse pile. 
 
 + 08/01/2023 Richard Heart is finally sued by the SEC, fulfilling his own prophecy. Soon the SEC will storm HQ and arrest the code. 
