@@ -1,9 +1,11 @@
 ## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING Glasses](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide military grade security for your crypto. 
 
-### [FUD.Zone](https://www.fud.zone) Quote o' August 2023
+### [FUD.Zone](https://www.fud.zone) Quote o' September 2023
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 ### Today's FUD 
+
++ 08/29/2023 All top 5 performing coins on #Pulsechain are non-RH products and it's been two years since sacrifice (clown face emoji here)
 
 + 08/11/2023 "We're down 98% but we're up 4000X" -Chad Hexican
 
