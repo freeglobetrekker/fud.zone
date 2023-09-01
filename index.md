@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 09/01/2023 An inside source in Puerto Rico's San Juan has revealed many of the top holders of $PLS have already rage quit. 
+
 + 08/29/2023 All top 5 performing coins on #Pulsechain are non-RH products and it's been two years since sacrifice (clown face emoji here)
 
 + 08/11/2023 "We're down 98% but we're up 4000X" -Chad Hexican
