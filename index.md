@@ -1,9 +1,11 @@
 ## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING Glasses](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide military grade security for your crypto. 
 
-### [FUD.Zone](https://www.fud.zone) Quote o' September 2023
+### [FUD.Zone](https://www.fud.zone) Quote o' October 2023
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 ### Today's FUD 
+
++ 09/28/2023 Gary Ginsler is Grilled Grated Grease by US Congress While He is [Simultaneously Sued](https://www.cnbc.com/2023/09/27/sec-chair-gensler-facing-increasing-lawsuits-over-his-rule-changes.html) by Countless Founders, Teams & Organizations 
 
 + 09/01/2023 An inside source in Puerto Rico's San Juan has revealed many of the top holders of $PLS have already rage quit. 
 
