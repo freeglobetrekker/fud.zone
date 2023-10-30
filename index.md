@@ -1,9 +1,11 @@
 ## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING Glasses](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide military grade security for your crypto. 
 
-### [FUD.Zone](https://www.fud.zone) Quote o' October 2023
+### [FUD.Zone](https://www.fud.zone) Quote o' November 2023
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 ### Today's FUD 
+
++ 10/30/2023 Wow, $HEX down to less than $0.01 a pop. So glad I didn't buy in on [that mess.](https://twitter.com/freeglobetrekk/status/1718589922217431312) Also $PLS, $PLSX and $INC 
 
 + 09/28/2023 Gary Ginsler is Grilled Grated Grease by US Congress While He is [Simultaneously Sued](https://www.cnbc.com/2023/09/27/sec-chair-gensler-facing-increasing-lawsuits-over-his-rule-changes.html) by Countless Founders, Teams & Organizations 
 
