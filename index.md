@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 12/12/2023 "@RichardHeartWin just changed his profile description to state that he is no longer using Twitter/X, Telegram or any other social media. He also hasn't tweeted since 7. Dec. Highly likely this was his last tweet. Now he has completely disappeared." -Mr. Teppanyaki
+
 + 11/28/2023 PulseX keeps dropping. Documentary costs $15 to watch. 
 
 + 10/30/2023 Wow, $HEX down to less than $0.01 a pop. So glad I didn't buy in on [that mess.](https://twitter.com/freeglobetrekk/status/1718589922217431312) Also $PLS, $PLSX and $INC 
