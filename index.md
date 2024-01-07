@@ -1,9 +1,11 @@
 ## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING Glasses](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide military grade security for your crypto. 
 
-### [FUD.Zone](https://www.fud.zone) Quote o' December 2023
+### [FUD.Zone](https://www.fud.zone) Quote o' January 2024
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 ### Today's FUD 
+
++ 01/06/2024 Four months away to Bitcoin halvening and run up to the US presidential elections. Will number go up? 
 
 + 12/12/2023 "@RichardHeartWin just changed his profile description to state that he is no longer using Twitter/X, Telegram or any other social media. He also hasn't tweeted since 7. Dec. Highly likely this was his last tweet. Now he has completely disappeared." -Mr. Teppanyaki
 
