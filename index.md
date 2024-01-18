@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 01/18/2024 We pamped so hard now, we down again. Is Richard Heart a scammer? 
+
 + 01/06/2024 Four months away to Bitcoin halvening and run up to the US presidential elections. Will number go up? 
 
 + 12/12/2023 "@RichardHeartWin just changed his profile description to state that he is no longer using Twitter/X, Telegram or any other social media. He also hasn't tweeted since 7. Dec. Highly likely this was his last tweet. Now he has completely disappeared." -Mr. Teppanyaki
