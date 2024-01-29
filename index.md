@@ -5,7 +5,7 @@
 
 ### Today's FUD 
 
-+ 01/29/2024 Still up 3X from 2 months ago, not bad not bad, but wen moon? 
++ 01/29/2024 Still up 3X from 2 months ago, not bad not bad, but wen moon? Is RH going to pump us again?
 
 + 01/18/2024 We pamped so hard now, we down again. Is Richard Heart a scammer? 
 
