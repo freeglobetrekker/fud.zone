@@ -1,9 +1,11 @@
 ## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING Glasses](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide military grade security for your crypto. 
 
-### [FUD.Zone](https://www.fud.zone) Quote o' January 2024
+### [FUD.Zone](https://www.fud.zone) Quote o' February 2024
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 ### Today's FUD 
+
++ 01/29/2024 Still up 3X from 2 months ago, not bad not bad, but wen moon? 
 
 + 01/18/2024 We pamped so hard now, we down again. Is Richard Heart a scammer? 
 
