@@ -1,9 +1,11 @@
 ## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING Glasses](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide military grade security for your crypto. 
 
-### [FUD.Zone](https://www.fud.zone) Quote o' February 2024
+### [FUD.Zone](https://www.fud.zone) Quote o' March 2024
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 ### Today's FUD 
+
++ 02/28/2024 Why is everything else, including Bitcoin way up while Pulsechain lags?
 
 + 01/29/2024 Still up 3X from 2 months ago, not bad not bad, but wen moon? Is RH going to pump us again?
 
