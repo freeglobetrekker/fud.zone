@@ -5,9 +5,11 @@
 
 ### Today's FUD 
 
-+ 05/02/2024 Another 50 weeks to shake out the weak hands? 
++ 05/02/2024 Is Richard Heart still alive? 
 
-+ 03/31/2024 He is risen, He is risen indeed. 
++ 05/01/2024 Happy 51 weeks to shake out the weak hands. 
+
++ 04/25/2024 Another 50 weeks to shake out the weak hands? 
 
 + 02/28/2024 Why is everything else, including Bitcoin way up while Pulsechain lags?
 
