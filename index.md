@@ -1,9 +1,11 @@
 ## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING Glasses](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide military grade security for your crypto. 
 
-### [FUD.Zone](https://www.fud.zone) Quote o' May 2024
+### [FUD.Zone](https://www.fud.zone) Quote o' June 2024
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 ### Today's FUD 
+
++ 06/03/2024 Every OG seems to have a coin but the core coins continue to go down. Strangely enough there are $200-$250K clips of USD buying up $PLS and $PLSX consistently. Wen stream? 
 
 + 05/02/2024 Is Richard Heart still alive? 
 
