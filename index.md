@@ -1,9 +1,11 @@
 ## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING Glasses](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide military grade security for your crypto. 
 
-### [FUD.Zone](https://www.fud.zone) Quote o' July 2024
+### [FUD.Zone](https://www.fud.zone) Quote o' August 2024
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 ### Today's FUD 
+
++ 07/31/2024 Green candles are back, but can anything gold stay?
 
 + 07/03/2024 3 weeks without HEX Twitter is refreshing. 
 
