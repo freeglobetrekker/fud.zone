@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 08/01/2024 Will Richard Heart stream? 
+
 + 07/31/2024 Green candles are back, but can anything gold stay?
 
 + 07/03/2024 3 weeks without HEX Twitter is refreshing. 
