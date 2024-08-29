@@ -1,9 +1,13 @@
 ## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING Glasses](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide military grade security for your crypto. 
 
-### [FUD.Zone](https://www.fud.zone) Quote o' August 2024
+### [FUD.Zone](https://www.fud.zone) Quote o' September 2024
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 ### Today's FUD 
+
++ 08/29/2024 Will Richard Heart stream? 
+
++ 08/15/2024 Will Richard Heart stream?
 
 + 08/01/2024 Will Richard Heart stream? 
 
