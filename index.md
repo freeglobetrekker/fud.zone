@@ -5,6 +5,8 @@
 
 ### Today's FUD 
 
++ 09/22/2024 No FUD today, sorry [___________________](https://x.com/MoneyGangCrypto/status/1837602957010800724)
+
 + 08/29/2024 Will Richard Heart stream? 
 
 + 08/15/2024 Will Richard Heart stream?
