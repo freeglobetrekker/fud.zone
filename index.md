@@ -5,7 +5,7 @@
 
 ### Today's FUD 
 
-+ 10/03/2024 Uptober predictions: (1) RH gets court case dismissed (2) Kamala wins (3) Small nuclear event happens in Middle east (4) Stimulus package revealed (5) Inflation skyrockets = Uptober 10X
++ 10/03/2024 Uptober predictions: (1) RH gets court case dismissed (2) Kamala wins (3) Small nuclear event happens in Middle east or UA (4) Stimulus package revealed (5) Inflation skyrockets = Uptober 10X
 
 + 10/01/2024 No FUD today...green candles 
 
