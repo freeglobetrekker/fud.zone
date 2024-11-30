@@ -7,6 +7,8 @@
 
 + 11/30/2024 No FUD, we pampin'
 
++ 11/04/2024 Will Trump pump crypto? Gensler out, friendlies in...2025 we come alive? 
+
 + 11/01/2024 The time for FUD is over. Sounds like Richard's all-star team of lawyers wiped the floor with the SEC. Remember remember the 5th of November. 
 
 + 10/03/2024 Uptober predictions: (1) RH gets court case dismissed (2) Kamala wins (3) Small nuclear event happens in Middle east or UA (4) Stimulus package revealed (5) Inflation skyrockets = Uptober 10X
