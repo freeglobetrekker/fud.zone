@@ -1,9 +1,11 @@
 ## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING Glasses](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide military grade security for your crypto. 
 
-### [FUD.Zone](https://www.fud.zone) Quote o' November 2024
+### [FUD.Zone](https://www.fud.zone) Quote o' December 2024
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 ### Today's FUD 
+
++ 11/30/2024 No FUD, we pampin'
 
 + 11/01/2024 The time for FUD is over. Sounds like Richard's all-star team of lawyers wiped the floor with the SEC. Remember remember the 5th of November. 
 
