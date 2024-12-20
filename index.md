@@ -5,6 +5,10 @@
 
 ### Today's FUD 
 
++ 12/20/2024 Well it was a good run. We had a lot of fun. 
+
++ 12/15/2024 2025 we come alive?
+
 + 11/30/2024 No FUD, we pampin'
 
 + 11/04/2024 Will Trump pump crypto? Gensler out, friendlies in...2025 we come alive? 
