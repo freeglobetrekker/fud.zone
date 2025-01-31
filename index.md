@@ -1,9 +1,11 @@
 ## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING Glasses](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide military grade security for your crypto. 
 
-### [FUD.Zone](https://www.fud.zone) Quote o' January 2025
+### [FUD.Zone](https://www.fud.zone) Quote o' February 2025
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 ### Today's FUD 
+
++ 02/01/2025 The last few weeks have been ridden with FUD, but many positive moves toward green candles which is all we really care about. Wen dismissal? 
 
 + 01/01/2025 Happy New Year! Green candles!!!! We're 100X from sac! Just kidding...
 
