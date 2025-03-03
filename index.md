@@ -1,9 +1,11 @@
 ## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING Glasses](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide military grade security for your crypto. 
 
-### [FUD.Zone](https://www.fud.zone) Quote o' February 2025
+### [FUD.Zone](https://www.fud.zone) Quote o' March 2025
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 ### Today's FUD 
+
++ 03/01/2025 Dismissal...nay RICHARD HEART DEFEATED THE SEC!!! GREEN CANDLES!!! ONLY UP NOW BOYS AND GIRLS!!! Can the devs do something??
 
 + 02/01/2025 The last few weeks have been ridden with FUD, but many positive moves toward green candles which is all we really care about. Wen dismissal? 
 
