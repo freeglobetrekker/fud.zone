@@ -1,9 +1,11 @@
 ## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING Glasses](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide military grade security for your crypto. 
 
-### [FUD.Zone](https://www.fud.zone) Quote o' March 2025
+### [FUD.Zone](https://www.fud.zone) Quote o' April 2025
 “Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
 
 ### Today's FUD 
+
++ 04/01/2025 WE FINALLY DID IT! 10,000,000x ON BOTH $PLS & PLSX SAC! WE WON! THEY WERE WRONG! THE HATERS LOST! RICHARD HEART DESTROYED EVERYONE WITH HIS GENIUS! April Fools...we are such fools
 
 + 03/01/2025 Dismissal...nay RICHARD HEART DEFEATED THE SEC!!! GREEN CANDLES!!! ONLY UP NOW BOYS AND GIRLS!!! Can the devs do something??
 
