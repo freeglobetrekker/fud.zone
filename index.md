@@ -1,9 +1,10 @@
-## Welcome to the FUD.ZONE, Sponsored by [HORUS X GAMING Glasses](https://us.horus-x.com/?ref=8DXfZjir5yX) & [Gridplus](http://www.gridplus.io?afmc=fg) the next-generation hardware wallet designed to provide military grade security for your crypto. 
+## Welcome to the FUD.ZONE 
 
-### [FUD.Zone](https://www.fud.zone) Quote o' April 2025
-“Two things are infinite: the universe and human stupidity; and I'm not sure about the universe.”
+“Better to remain silent and be thought a fool than to speak and to remove all doubt.”
 
 ### Today's FUD 
+
++ 05/22/2025 ALL narratives and influencers about Pulsechain were incorrect. 
 
 + 04/01/2025 WE FINALLY DID IT! 10,000,000x ON BOTH $PLS & PLSX SAC! WE WON! THEY WERE WRONG! THE HATERS LOST! RICHARD HEART DESTROYED EVERYONE WITH HIS GENIUS! April Fools...we are such fools
 
