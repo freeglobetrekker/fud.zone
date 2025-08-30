@@ -4,6 +4,8 @@
 
 ### Today's FUD 
 
++ 08/29/2025 After what I just learned, the game has changed. If you don't hold $PLSX right now, you're NGMI.
+
 + 05/22/2025 ALL narratives and influencers about Pulsechain were incorrect. 
 
 + 04/01/2025 WE FINALLY DID IT! 10,000,000x ON BOTH $PLS & PLSX SAC! WE WON! THEY WERE WRONG! THE HATERS LOST! RICHARD HEART DESTROYED EVERYONE WITH HIS GENIUS! April Fools...we are such fools
