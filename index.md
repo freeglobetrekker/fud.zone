@@ -4,6 +4,8 @@
 
 ### Today's FUD 
 
++ 11/15/2025 ProveX sacrifice is another scam to clean out the Pulsechain & Hexicans! RH just wants our money! 
+
 + 08/29/2025 After what I just learned, the game has changed. If you don't hold $PLSX right now, you're NGMI.
 
 + 05/22/2025 ALL narratives and influencers about Pulsechain were incorrect. 
